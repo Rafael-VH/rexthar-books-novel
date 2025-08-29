@@ -1,0 +1,32 @@
+
+Capítulo 95 La curiosa ninfa del árbol (R18)
+
+Su cuerpo se desplomó sobre el de Orión y enroscó sus manos alrededor de sus hombros, empujando inadvertidamente su cabeza contra su generoso pecho que todavía estaba cubierto por su atuendo hecho de enredaderas y varias flores de colores. Aunque Orión se sintió un poco incómodo con su rostro presionado contra la enredadera elástica, sus pechos bien formados y de un profundo color azul real lo compensaron con creces cuando sintió su piel increíblemente suave e inhaló su embriagador aroma floral. "Magnífico", murmuró Orión en voz baja, sus labios rozando su piel mientras aumentaba la velocidad de sus dedos.
+
+—AHHHH~~~ —Malaia no pudo contenerse más y soltó un grito mezclado con un fuerte gemido. Sus sentidos estaban desorganizados mientras miraban a su alrededor, confundida sobre qué lado era la izquierda o la derecha. Su boca estaba abierta, con la lengua colgando mientras intentaba recuperar el control de sí misma—. Uh... Uh... ¿No te dije que la flor de una ninfa de los árboles es demasiado sensible... haa... Si co-—No pudo terminar la frase cuando Orión separó sus dedos dentro de su flor, acariciando diferentes lados de sus paredes carnosas. La sensación era demasiado para que ella pudiera manejarla mientras se retorcía de placer, incapaz de formar pensamientos o palabras coherentes.
+
+"Ahhh~ Sto... HHHIIIIII~~" El cuerpo de Malaia se sintió invadido por el placer y ya no pudo sostenerse. Se agarró con fuerza del cuerpo de Orión, apoyando todo su peso sobre él y haciendo que cayera de nuevo al suelo. Todo su peso lo presionaba y él luchaba por soportar el peso de la voluptuosa ninfa del árbol.
+
+Cuando Orión cayó hacia atrás, su dedo se convirtió instintivamente en un gancho mientras intentaba retirar su mano y estabilizarse. Sin embargo, sus acciones tuvieron una intensa reacción en cadena en todo el cuerpo de Malaia, comenzando por su flor ya sobreestimulada y extendiéndose rápidamente por la parte inferior de su cuerpo. La sensación de hormigueo pronto se apoderó de todo su cuerpo como un rayo. Su cuello y piernas debajo de las rodillas se arquearon hacia arriba, sus dedos de los pies se curvaron con fuerza y ​​​​su boca se abrió en un intento de gritar, pero solo salieron oleadas de saliva con cada intento, aterrizando en la cara de Orión y el exuberante suelo cubierto de hierba que lo rodeaba. Sus pupilas dilatadas miraron hacia el cielo mientras se convulsionaba de placer, su cuerpo incapaz de resistir la intensa sensación de hormigueo.
+
+A pesar de los mejores esfuerzos de Malaia, finalmente fueron en vano, ya que el momento en que logró soltar un suspiro fue también el momento en que su cuerpo entregó toda su fuerza y ​​​​colapsó sin vida sobre el pequeño cuerpo de Orión.
+
+Los pensamientos de Orión corrían a toda velocidad mientras retiraba lentamente el dedo del reconfortante calor de la flor palpitante de Malaia. «¿Me excedí?», se preguntó, observando cómo su cuerpo se sacudía bruscamente en respuesta a su movimiento. La repentina sacudida pareció darle la fuerza que necesitaba para, al menos, recuperar la compostura.
+
+Jadeando, el atractivo escote de Malaia se apretó contra el rostro de Orión, lo que la hizo sacudir la cabeza con cansancio e hizo una pausa antes de hablar. «Verás», continuó, aprovechando la oportunidad para explicarle a Orión las repercusiones de sus acciones, «es precisamente por eso que la flor de una ninfa arbórea es tan sensible».
+
+Orión, liberándose finalmente de las jaulas de sus pechos, la tranquilizó: «No te preocupes, ahora lo entiendo». Aunque podría haberla empujado con facilidad para liberarse de su agarre, se contuvo, pues sabía que él mismo había causado este desastre. Además, no pudo evitar notar que su miembro rígido se alineaba con su flor, lo que le impedía realizar movimientos bruscos.
+
+Orión exhaló profundamente, su cintura se retorció ligeramente mientras deliberadamente hacía que su palpitante eje se contrajera y rozara los bordes de la delicada flor de Malaia.
+
+Sin embargo, a pesar de su agotamiento, Malaia no pudo evitar notar la incomodidad de Orión bajo su peso. Aunque estaba demasiado agotada para comprender por qué solo movía la cintura, reunió sus últimas fuerzas para incorporarse. Incapaz de sentir las piernas, se balanceó sobre la cintura de Orión, decidida a recuperar fuerzas mientras luchaba por recuperar el control de sus extremidades.
+
+Respirando hondo, Malaia se incorporó y miró a Orión con la intención de hablar, pero su atención se desvió hacia algo por debajo de su cintura. Su mirada se desvió hacia abajo y sintió una oleada de incomodidad al darse cuenta de que algo presionaba su flor. Al mirar más de cerca, vio el pene venoso del niño, que llevaba un rato erecto y crecía ligeramente. Malaia echó su prominente trasero hacia atrás, envolviendo con la mano la superficie palpitante y ardiente de su miembro antes de tirar de él hacia arriba.
+
+"uHH~~" Esta vez, Orión no pudo contener sus gemidos, un sonido gutural escapó de sus labios al sentir las protuberantes nalgas desnudas y amarillentas de Malaia rozarse contra su regazo. Su miembro finalmente se posicionó bajo su ano, pulsando contra la suave y brillante entrada, hasta que el fuerte agarre de Malaia lo elevó.
+
+—¡Mierda! —maldijo Orión, y la punzada en su miembro y sus testículos se volvió casi insoportable. Sintió gotas calientes y pegajosas de líquido preseminal manchando la punta de su prepucio mientras luchaba por mantener la compostura.
+
+Mientras observaba el fluido blanco y pegajoso que emanaba del pene de Orión, Malaia no pudo contener la curiosidad. Nunca había visto salir semen del pene de un hombre, sobre todo considerando lo valioso que era para su aldea. Frotó con cuidado la punta del miembro de Orión y recogió delicadamente el semen entre sus dedos, examinándolo detenidamente antes de llevárselo a la boca con vacilación.
+
+Con delicadeza, se metió el dedo cubierto de semen en la boca y saboreó el espeso líquido blanco mientras lo enroscaba con la lengua y lo besaba para quitarlo de sus labios. En cuestión de segundos, hizo girar el sabor en su boca, deleitándose con la mezcla única de sabores. Cuando el sabor del semen se instaló en su boca, abrió los ojos de golpe con sorpresa y susurró: "Dulce", seguido de un leve ceño fruncido. "Pero un poco amargo y hormigueante", murmuró, intrigada por la inesperada combinación de sensaciones.

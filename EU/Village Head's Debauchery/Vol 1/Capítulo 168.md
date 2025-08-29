@@ -1,0 +1,34 @@
+
+Capítulo 168 Esforzarse
+
+Con un gesto decidido, Celeste respondió rápidamente: «No te preocupes, no dudaré en informarle a Orión de todo. Aunque espero que se sorprenda, creo firmemente que manejará esta noticia mucho mejor que yo al principio», la tranquilizó, con una suave sonrisa en los labios. Con ternura, Celeste acarició con cariño la espalda de la abuela Celia; sus gestos tranquilizadores buscaban calmar la tormenta emocional que la embargaba.
+
+Tras escuchar la promesa de Celeste, la abuela Ingrid se levantó de su asiento y se acercó. «Nos despedimos», anunció, dirigiendo la mirada momentáneamente hacia la abuela Celia. Una preocupación tácita brilló en sus ojos, lo que llevó a Celeste a responderla rápidamente. Percibiendo la preocupación tácita, tranquilizó a la abuela Ingrid: «No te preocupes por ella. Me aseguraré de que tenga todo el tiempo y el espacio que necesite aquí antes de regresar».
+
+La abuela Ingrid asintió en señal de agradecimiento, reconociendo la necesidad de privacidad y conversaciones personales entre Celeste y la abuela Celia. Comprendiendo que su papel había terminado, se acercó una vez más a Celeste y luego se giró para dirigirse a las mujeres que estaban detrás de ella. Una a una, se levantaron y salieron de la habitación, cada una cumpliendo con sus responsabilidades diarias. La abuela Meldra, sin embargo, siguió fielmente el ejemplo de la abuela Ingrid, sabiendo que se dirigían a la granja.
+
+Mientras se alejaba del complejo, la abuela Meldra giró bruscamente la cabeza hacia su amiga de toda la vida. Su voz tenía un tono de complicidad al decir: «Sé lo que piensas». Sorprendida, la abuela Ingrid se estremeció un instante, pero recuperó la compostura rápidamente. Carraspeando, respondió con fingida ignorancia: «No tengo ni idea de qué hablas, Meldra».
+
+La abuela Meldra resopló en respuesta, apoyando instintivamente la mano en su estómago mientras lo miraba. "Presencié tu pequeña proeza y, sinceramente, no puedo culparte por tus acciones. Siento lo mismo", admitió con una risita, consciente de que todos compartían sentimientos similares, excepto Celia, quien ya poseía lo que todas deseaban. "Pero si de verdad quieres lograr tus deseos antes de que sea demasiado tarde, mejor deja esa actitud antes de que cualquiera de nosotras te gane. Sobre todo Derry, que parece ser el único lo suficientemente valiente como para expresar nuestros pensamientos colectivos", añadió, con una sonrisa pícara en los labios. La abuela Meldra se frotó suavemente el estómago antes de retirar la mano y darle una palmada firme a las prominentes nalgas de la abuela Ingrid. Cuando las nalgas de la abuela Ingrid se sacudieron por el impacto, detuvo el paso y se giró para mirar a Meldra con un ceño tenso y desaprobatorio.
+
+Sin embargo, la abuela Meldra siguió caminando, ignorando por completo el ceño fruncido de la abuela Ingrid y el hecho de que se hubiera detenido detrás de ella. "Deberías empezar a buscar una forma de acercarte antes de que sea demasiado tarde. O mejor aún, intenta establecer una relación amistosa con él. He oído que no juzga por las apariencias como la mayoría de los hombres", la voz de la abuela Meldra se fue apagando mientras hablaba, dejando a la abuela Ingrid reflexionando sobre sus palabras.
+
+Sacudiendo la cabeza con resignación, la abuela Ingrid dejó escapar un suspiro cansado y aceleró el paso para alcanzar a Meldra, que se alejaba. "Ah, y recuerda, no tenemos ni idea de cómo reaccionará el jefe de la aldea ante esta noticia. Así que, si insistes en ser terca y distante a pesar de tener una oportunidad tan increíble ante ti, no dudaré en dejarte atrás y satisfacer mis propios deseos primero", resonaron las últimas palabras de la abuela Meldra en la mente de la abuela Ingrid, frenéticas mientras se preparaba mentalmente para su próximo encuentro con Orión.
+
+….................
+
+"Jajajajaja..." Orión exhaló con fuerza; respiraba con dificultad mientras luchaba por mantener el equilibrio. Apenas podía sostenerse en pie, así que optó por arrodillarse en el suelo carbonizado y ennegrecido para aliviar la tensión. "No creo... Jajajajajaja... pueda continuar más... Jajajaja..." Grim, Tala, Gorg y Ursa imitaron su agotamiento, asintiendo con la cabeza. El cansancio los había invadido, calando hondo, provocando agudos espasmos de dolor cada vez que intentaban activar sus poderes o controlar la caótica oleada de energía Vylkr que los recorría.
+
+"Guerrero Jean..." Grim finalmente no pudo contener su agonía y expresó su dolor. Sin embargo, el Guerrero Jean lo interrumpió rápidamente, levantándose y abriéndose paso hacia ellos, sacudiendo la cabeza con cansancio. "¿Qué pasa? ¿No les dije que no necesitan necesariamente sus dones para convertirse en guerreros hábiles?".
+
+Tala intervino, con la voz llena de frustración: "Pero..."
+
+"¿Pero qué?", ​​replicó el guerrero Jean, con la mirada fija en Tala, que respiraba con dificultad, y las cejas arqueadas con curiosidad. "A diferencia de ayer, cuando todos durmieron todo el día por buenas razones, ¿nunca se les ocurrió que algún día tendrían que luchar sin usar sus dones? ¿O luchar sin descanso hasta que se les rompan los huesos y les duelan los músculos?"
+
+El guerrero Jean recogió una liana Vylkr del suelo y arrancó un trozo con los dientes. «Espera un momento», sin esperar respuesta, se dio la vuelta y empezó a caminar en cierta dirección, hasta que se detuvo bruscamente a cierta distancia y recuperó una bolsa escondida tras un árbol.
+
+Con el mismo paso que había usado para caminar hacia el árbol, el guerrero Jean regresó rápidamente a su lado, volcando la bolsa. Para su sorpresa, sus alfanjes, que habían usado el día anterior, se cayeron. «Como alguien que no se considera un maestro irresponsable ni injusto», explicó el guerrero Jean, «les pedí a los guerreros encargados de despejar la zona que mantuvieran sus armas a salva. Ahora pueden recuperarlas y continuar con su trabajo».
+
+Mientras bebía los últimos restos de la liana Vylkr que tenía en la mano, la mirada del guerrero Jean no se detuvo en sus expresiones. Se dio la vuelta, listo para marcharse, pero se detuvo bruscamente, girando la cabeza hacia ellos, como si un pensamiento olvidado hubiera resurgido de arrepentimiento.
+
+"Y si sientes que tu cuerpo está a punto de desgarrarse por el agotamiento", continuó el guerrero Jean, con una voz tranquilizadora en medio de la fatiga, "sabes que es la energía Vylkr la que está en juego. Está aprovechando esta oportunidad para reconstruir y fortalecer tu cuerpo, asegurándose de que pueda fluir sin problemas por cada fibra para cuando recuperes toda tu fuerza. Simplemente deja que haga su trabajo y concéntrate en cumplir con tus propias tareas".

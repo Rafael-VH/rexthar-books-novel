@@ -1,0 +1,34 @@
+
+Capítulo 113 La felicidad de mi hermana mayor (2) (R18)
+
+El cuerpo de Reena se arqueó en éxtasis, con la cabeza echada hacia atrás en un grito desgarrador. Estaba absorta en el momento, apretada contra mí, con las piernas alrededor de mi cintura y los brazos colgando de mis hombros. Mientras seguía excitándola, aproveché para mirar a mi alrededor, para confirmar quién podría estar observándonos en medio de nuestra pasión.
+
+En cuanto mi mirada se posó en la puerta, vi el rostro de nuestra madre asomándose. Lo que me sorprendió mientras fue la expresión vacía en sus ojos me veía atravesar a Reena con mi pene. Solo tardó unos segundos en salir de su estado de trance y mirarme fijamente. Su mirada, llena de anhelo y deseo, me provocó un escalofrío.
+
+No puedo evitar pensar que si en ese momento no estuviera metiendo mi miembro lleno de erecciones en el coño de Reena, ella habría salido corriendo a mi encuentro, ofreciéndome con entusiasmo su húmeda vagina materna para que yo la disfrutara. O tal vez habría esperado a que regresara a nuestra cabaña y habría iniciado el mismo acto sensual.
+
+"PAH~~" "PAH~~"
+
+El cuerpo esbelto de Reena siguió subiendo y bajando sobre mi pene hinchado, lo que hizo que mi mano agarrara su cintura con fuerza para evitar que se cayera. Había perdido el control de sus brazos, dejándolos caer flácidamente a sus costados. Sus jadeos y gemidos de placer resonaron por la habitación, mientras los sonidos húmedos y chapoteantes de mis implacables embestidas llenaban el aire. "Ohhh~~ Pahh~~ Auh~~", jadeó, sus pliegues rosados ​​temblaban de placer ante las caricias constantes de mi miembro palpitante contra su estrecho interior. "¡Orión! Aaahh~~ Cal~~ Gah~~", gritó Reena, sus intentos de hablar obstaculizandodos por los chorros de saliva que escapaban de sus labios. Finalmente, dejó de intentar formar palabras coherentes, sucumbiendo a las abrumadoras sensaciones de éxtasis que recorrían su cuerpo.
+
+"PAH~~ APAGA~~ PAH~~ APAGA~~"
+
+A pesar de la intensidad del momento, mantuve un ritmo inquebrantable, penetrando y saliendo de sus suaves pliegues con una fuerza inquebrantable. Mis manos aferraron con fuerza sus pequeñas pero firmes nalgas, como instándola a tomarme por completo. Con cada embestida, me sumergía más profundamente en ella, desatando una avalancha de sensaciones eufóricas que latían por todo nuestro cuerpo.
+
+Mientras veía a Reena renunciar a formar palabras coherentes y optar por jadeos entrecortados, supe que tenía que hacer algo para ayudarla a recuperar el aliento. Sin dudarlo, me incliné y capturé sus labios en un beso apasionado. La incomodidad inicial de nuestras lenguas entrelazadas pronto dio paso a una sensación electrizante, mientras nuestra saliva se mezclaba y nuestros labios se fundían en un abrazo ardiente. Justo cuando pensé que ya había tenido suficiente, Reena se separó con una fuerte exclamación: «Jaaaa...». Pero para mi sorpresa, se abalanzó sobre mí y reclamó mis labios con renovado fervor, llevándome con entusiasmo mientras yo continuaba con mis embestidas rápidas y furiosas.
+
+Mi mente estaba consumida por el intenso placer del fuerte abrazo de Reena, y casi había olvidado que nuestra madre nos observaba hasta que el crujido de la puerta me devolvió a la realidad. Giré la cabeza para ver sus piernas abiertas y su tulga levantada, con sus voluptuosas nalgas desnudas descansando sobre el suelo frío y duro. Sus ojos vidriosos estaban fijos en nosotros, pero fue la visión de sus dedos, dos o tres, lo que realmente me llamó la atención. Estaban ocupados en su trabajo, retirándola y penetrándola con un ritmo que coincidía con el mío. La imagen de mi madre metiéndose los dedos despreocupadamente en su vagina húmeda mientras me veía follar con mi hermana me hizo incapaz de apartar la vista de la escena erótica que se desarrollaba ante mí.
+
+Claro, sabía que mi madre no veía ningún problema con nuestras acciones. Al fin y al cabo, como su hijo y ahora su pareja, podía penetrar su punto justo con la intensidad que deseara, llevando su elasticidad al borde del éxtasis. Pero la idea de explorar mis deseos tabú solo avivaba el fuego, encendiendo una pasión que ardía con más intensidad con cada embestida. Y con cada instante que pasaba, me encontraba perdiendo el control ante los impulsos primarios que me consumían, desatando sin darme cuenta una pasión salvaje y desenfrenada que no conocía límites en Reena.
+
+"~~PAHH~~ PAH~~ PAH—"
+
+"~~~CHIRRIDO~~~PAH~~CHIRRIDO~~"
+
+Mientras me perdía en el ritmo de penetrar las estrechas paredes de Reena, el tiempo parecía escabullirse. No fue hasta que pasaron varios minutos que me di cuenta de que llevábamos casi media hora atrapados en este abrazo carnal. Mi mirada se dirigió a nuestra madre, que seguía tocándose con pasión, con sus fluidos derramándose por sus muslos mientras gemía de placer. Con cada embestida, sentía el calor que irradiaba su piel resbaladiza, y me imaginaba hundiéndome profundamente en sus húmedos y aterciopelados pliegues. Verla golpear sus firmes nalgas contra el suelo frío y duro solo aumentaba la energía sexual pura que nos consumía a todos.
+
+"UGHH~gahh~~AUH~" Pero pronto, los gemidos entrecortados de Reena irrumpieron en mis pensamientos y me trajeron de vuelta al momento. Ella apoyó la cabeza y la parte superior del cuerpo sin fuerzas sobre la mía, apoyando la cabeza sobre mis hombros y mirando a lo lejos con los ojos muy abiertos. Pero en el momento en que solté unas cuantas caricias deliciosas, sus jadeos incoherentes se convirtieron en gritos y alaridos de placer que resonaron en el patio trasero.
+
+Aun así, tomé la decisión consciente de bajar el ritmo. Poco a poco, mi ritmo disminuyó, cada embestida acompañada de un satisfactorio "Pah~~~ Pah~~~~ Pah~~~~". Finalmente, me detuve por completo, pero resistí el impulso de ceder a una última embestida poderosa. En cambio, dejé que el cuerpo de Reena tomara el control, sintiendo sus nalgas descender solas. Un repentino "PAH~~~" la obligó a estirar los brazos, y soltó un pequeño e involuntario "URghhh" antes de desplomar la cabeza sobre mi hombro derecho, agotada y completamente inconsciente.
+
+Con mi pene ardiente y venoso aún latiendo y palpitando en su interior, no pude evitar soltar un suspiro, frustrado por no haberme corrido. «Al menos está satisfecha», murmuré para mí mismo, mientras mi aliento rozaba el cuello de Reena. Podía sentir sus cálidos jugos resbalando por mi miembro endurecido, aún profundamente incrustado en ella, hasta mis testículos antes de caer al suelo. Sus jugos seguían empapándome el miembro, dejando un rastro resbaladizo a su paso.

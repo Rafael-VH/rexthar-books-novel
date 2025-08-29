@@ -1,0 +1,8 @@
+{
+  "accentColor": "#71a204",
+  "theme": "obsidian",
+  "cssTheme": "Atom",
+  "nativeMenus": true,
+  "baseFontSizeAction": true,
+  "showRibbon": true
+}

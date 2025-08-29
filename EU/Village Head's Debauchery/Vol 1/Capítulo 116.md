@@ -1,0 +1,30 @@
+
+Capítulo 116 Jubilarse con un propósito
+
+Orión no pudo evitar soltar un gemido de cansancio y exasperación al darse cuenta de que se había quedado dormido, sin despertarse tan temprano como pretendía. Sin embargo, al mirar por la ventana hacia el cielo, que estaba a punto de estallar con los primeros rayos del sol de la mañana, supo que aún tenía la oportunidad de llegar a tiempo al recinto del jefe de la aldea si se apresuraba al pozo y regresaba a casa a paso ligero.
+
+Sin perder un segundo, agarró una olla de barro que usaba para buscar agua y un jugoso fruto de Kalna antes de dirigirse rápida y silenciosamente hacia el pozo. El viento le azotaba las orejas mientras corría, decidido a llegar a tiempo. Aunque se esforzaba más de lo habitual, la perspectiva de disfrutar de otra sesión íntima con Fiona era motivación más que suficiente para seguir adelante.
+
+El pecho de Orión se agitó mientras se acercaba al pozo, lo que le hizo disminuir la velocidad y recuperar el aliento antes de reanudar su caminata hacia adelante. Mientras se acercaba al pozo, vio el físico femenino pero musculoso de Fiona sentada cerca, probablemente esperando que los aldeanos despertaran y vinieran a pagarle por el agua que les traería. Cuando se acercó, ella lo vio y rápidamente se puso de pie, con una expresión de reconocimiento en su rostro.
+
+Los ojos de Fiona se abrieron de par en par con sorpresa mientras miraba a Orión de pie frente a ella con su vasija de barro en la mano. "¿Llegaste temprano otra vez?" preguntó, notando su puntualidad. Mientras lo miraba de arriba abajo, los recuerdos de su último encuentro pasaron por su mente. No pude evitar admitir que él le había dejado una gran impresión, particularmente después de que le había pedido ver su don en acción en privado. La genuina expresión de asombro y maravilla que se había reflejado en su rostro durante ese encuentro permaneció con ella mucho después de que él se hubiera ido.
+
+Orión asintió y respondió: "Tengo un día muy ocupado por delante, así que decidí venir temprano".
+
+Fiona avanzó y extendió la mano para pedir el kalna, pero el comentario de Orión despertó su curiosidad. Se preguntó qué clase de día tan ajetreado habría planeado, sobre todo porque incluso aquellos que, según ella, tenían agendas más ocupadas que él, seguían durmiendo o acababan de despertar.
+
+Mientras Fiona se inclinaba para colocar la fruta kalna junto al pozo, la naturaleza inquisitiva de Orión pudo más que él. "¿Puedo preguntar cómo te las arreglas para levantarte temprano todos los días, especialmente cuando eres la encargada del pozo? Quiero decir, siempre estás aquí, desde el amanecer hasta el anochecer, llenando los recipientes de cada aldeano que viene a buscar agua", dijo, con su curiosidad evidente en su tono.
+
+Aunque Orión nunca había visto a Fiona cansarse de usar su don, no pudo evitar preguntarse cómo lograba mantenerse brillante y saludable, considerando las horas que se acostaba tan tarde.
+
+Una vez más, Fiona se sorprendió gratamente al ver el gran interés que Orión mostraba en ella. Nadie se había molestado en hacerle una pregunta tan personal, así que no pudo evitar sonreír al responder: «Bueno, quizá no lo sepas, pero yo era guerrera. Así que no me canso tan fácilmente como crees. De hecho, también me ayuda con mi don».
+
+La mente de Orión se llenó de posibilidades mientras esperaba ansiosamente su respuesta, preguntándose cómo podría tentarla a tragarse su semen otra vez. Pero sus pensamientos se vieron repentinamente trastocados por su inesperada revelación. "¿Eras una guerrera?", repitió, abriendo los ojos de asombro. A pesar de que su complexión alta, curvilínea y musculosa sugería que podía asestar un golpe que dejaría a la mayoría de los hombres sin aliento, nunca la había imaginado como una guerrera. Pero al mirarla ahora, no pudo evitar preguntarse qué otras sorpresas podría tener guardadas bajo la manga.
+
+Fiona no pudo contener la diversión al ver cómo el rostro de Orión se iluminaba de sorpresa y asombro una vez más. Tenía que admitir que tenerlo cerca era bastante entretenido, pero en su interior le alegraba que la encontrara intrigante. Cuando volvió a centrar su atención en ella y le preguntó si era guerrera, se serenó y asintió con seriedad. "Lo soy. Soy una de las pocas personas encargadas de cuidar las vides Vylkr", respondió con un dejo de orgullo en la voz.
+
+—Entonces, ¿qué haces aquí? —Orión no pudo evitar preguntar. Después de todo, si era una guerrera, ¿por qué estaba allí en lugar de hacer lo que la mayoría de los guerreros de aldea eran conocidos por hacer?
+
+Fiona negó con la cabeza y suspiró: «Porque quiero estar aquí. Y además, con mi don, también puedo ayudar más a la aldea ayudándola a sacar agua de este pozo seco». Dijo: «Y con mi ayuda, la aldea no tiene que preocuparse de que el otro pozo de la plaza del mercado también se seque. Así que, cuando el jefe de la aldea me preguntó si quería usar mi don y ser la mujer del pozo, acepté de inmediato». Una mirada de reminiscencia apareció en sus ojos, como si recordara el pasado.
+
+Orión se acercó en respuesta, entendiendo los recursos limitados de la aldea: solo había dos pozos para proporcionar agua a todos. Recordó que su madre discutió lo mismo con Reena, ya que su madre normalmente vendía sus ollas de barro en la plaza del mercado. Inicialmente, no se había sorprendido de que la aldea dependiera de dos pozos, ya que parecía más práctico que tener solo uno. Sin embargo, la decisión de Fiona de convertirse en una mujer del pozo lo había tomado por sorpresa. Pero Orión podía entenderlo porque el ex Orión había perdido la vida por una enredadera Vyklr, por lo que comprendió lo peligroso que es el trabajo de un guerrero. Como tal, cuando se dio cuenta de que el don de Fiona le permitiría reunir una cantidad considerable de riqueza todos los días, también supo que habría tomado la misma decisión que Fiona si hubiera tenido su habilidad. Después de todo, ¿no era su objetivo principal convertirse en guerrero solo para poder ganar algo más que la vida y explorar lo que había fuera de esta aldea al mismo tiempo?

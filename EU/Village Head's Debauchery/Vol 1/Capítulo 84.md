@@ -1,0 +1,30 @@
+
+Capítulo 84 Reputación
+
+De repente, el jefe de la aldea aplaudió dos veces y vi cómo dos guardias se adelantaban para flanquearnos. "Pueden seguirlos hasta la evaluación y terminar las tareas que les haya dejado su maestro. Hoy es el último día y tenemos más guerreros de los esperados, así que debo hacer arreglos con Thak".
+
+—Está bien, lo entiendo —respondí, poniéndome de pie y volviéndome hacia Thak. Le hice un gesto con la cabeza y él me devolvió el gesto antes de que me dirigiera hacia la puerta, con un guardia caminando delante de mí y el otro cerrando la marcha.
+
+Al salir del estrecho pasillo y alejarnos de la cabaña del jefe de la aldea, no pude resistirme a girar la cabeza para echar un último vistazo a la estructura. Aunque su tamaño no me impresionaba demasiado, no pude evitar preguntarme qué secretos se escondían tras sus muros. Al fin y al cabo, como jefe de la aldea, sin duda tenía asuntos importantes y privados que atender.
+
+Sin embargo, rápidamente descarté ese pensamiento de mi mente mientras me acercaba a la multitud. Parecía que habían terminado la evaluación y ahora estaban charlando distraídamente, lo que indicaba que la asignación de puntos también estaba hecha. A medida que me acercaba, no pude evitar preguntarme sobre los planos del maestro para nosotros, ya que hoy era el último día de la ceremonia del despertar.
+
+Al acercarnos a la multitud, algunos sintieron nuestros movimientos y voltearon la cabeza, paralizados de sorpresa ante nuestra presencia. Los participantes de la ceremonia del despertar de este año y los hombres y mujeres adultos que los acompañaban también hicieron una pausa y nos observaron mientras caminábamos hacia ellos. La multitud, antes bulliciosa, guardó silencio cuando los guardias asintieron con la cabeza y se alejaron, dejándome de pie, incómodo, entre la intensa mirada de todos a mi alrededor.
+
+Momentos después, una tos seca y penetrante resonó entre la multitud, atrayendo la atención de todos. "Ya que estamos todos aquí, terminamos su ceremonia de despertar con algo especial", dijo Fiona con un gesto de la cabeza y una sonrisa en mi dirección antes de apartar la mirada. "Señor Tog, puede encargarse de aquí". Saludó con la cabeza a uno de los profesores, el hombre que había realizado la evaluación con el cristal negro. Este se adelantó para dirigirse a la multitud mientras Fiona se retiraba del centro de atención.
+
+Mientras Fiona se alejaba, me hizo un gesto sutil para que me acercara. Se dirigió hacia las mujeres encargadas de documentar nuestros datos y evaluación. Sin dudarlo un instante, la siguió y me detuve frente a ellas. Fiona me dedicó una sonrisa radiante y me preguntó: "¿Terminaste de hablar con el jefe de la aldea?".
+
+Asentí enfáticamente y respondí: "Sí".
+
+Asintiendo, me miró a los ojos y dijo: «Como llegaste después de que termináramos de asignar puntos, es justo que te informe de inmediato». Hizo una pausa, alargando la espera antes de revelar la noticia: «Según los resultados, todos tienen un total de 12 puntos, y algunos nueve o diez. Sin embargo, tú has conseguido la friolera de 14 puntos. Tres de esos puntos se sumaron por tu participación en la granja de ayer, lo que eleva tu puntuación anterior de 11 puntos a un total de 14. Eso significa que eres el único que podrá recibir un regalo del jefe de la aldea».
+
+Asentí con la cabeza, plenamente consciente de que había cumplido con los requisitos para recibir un regalo del jefe de la aldea durante mi arduo trabajo en la granja el día anterior. Por lo tanto, la revelación no me sorprendió ni me desconcertó demasiado.
+
+Fiona soltó una risita repentina, con un brillo travieso en los ojos, y añadió: «Aunque el resto de tus compañeros se quejaban de que era injusto. Dijeron que ya habías despertado un potencial de seis estrellas, insinuando que recibirías un trato especial del jefe de la aldea y sugiriendo que les encantaría ganar más puntos yendo a la granja». Hizo una pausa y se giró para mirar a la multitud, ahora atenta, mientras el Sr. Tog se dirigía a ellos. «Sin embargo, aunque vayan a la granja hoy, no será para ganar puntos, ya que esa misión ya terminó. Será para algo más». Su voz tenía un aire de misterio, y no pude resistir la tentación de preguntar más. «¿Qué haremos?», pregunté, sin poder contener la curiosidad.
+
+De repente, sus dedos se extendieron y me agarraron las mejillas con fuerza, provocándome una exclamación de sorpresa. «Serán una sorpresa al descubrirlo cuando lleguen», bromeó con un tono divertido. Antes de que pudiera responder, me soltó las mejillas y continuó: «Por ahora, necesito darle al jefe de la aldea los informes completos de la ceremonia del despertar de este año. Los veré en la granja cuando termine». Con un gesto de la cabeza hacia las tres mujeres que estaban a su lado, se alejó con paso decidido, guiándolas hacia la cabaña de la que acababa de salir. Mientras caminaba, mi mirada se dirigió inevitablemente a sus prominentes nalgas ligeras de ropa, que ofrecían otra vista fascinante.
+
+Mientras estaba allí, no tuve que mirar mucho antes de oír dos voces familiares detrás de mí. Giré la cabeza y vi a Ursa y Sura corriendo hacia mí, cada una agarrándome del brazo con urgencia. "Vamos, tenemos que irnos", dijo Sura con tono urgente mientras me empujaba hacia adelante. Ursa intervino: "Sí, y tienes que decirnos qué hablaste con el jefe de la aldea". Ambas me arrastraron hacia el resto del grupo y los profesores.
+
+Al alcanzar a los demás, no pude evitar notar las miradas ocasionales que me dirigieron, pero algunos simplemente asintieron antes de volver a la carretera. Sabía que probablemente intentaban establecer una conexión amistosa conmigo, a lo que asentí en señal de acuerdo. Después de todo, tener más conexiones con personas con las que podrían intercambiar en el futuro siempre era mejor que nada.

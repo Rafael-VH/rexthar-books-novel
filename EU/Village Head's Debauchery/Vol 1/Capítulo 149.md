@@ -1,0 +1,34 @@
+
+Capítulo 149 Fiona preocupada
+
+"¿No es obvio?", dijo Orión con voz convencida, mientras tomaba la decisión consciente de agacharse y mirar a Fiona a los ojos por primera vez desde que se conocieron. "Que sea joven no significa que no pueda apreciar la importancia de la comunicación efectiva ni esforzarme por transmitir el verdadero significado de mis palabras a alguien que realmente lo merece. Espec...".
+
+Fiona, lejos de ser ingenua, poseía una madurez que le permitía leer entre líneas. En cuanto Orión empezó a hablar, su expresión de sorpresa se ensanchó de nuevo, y, sin poder contener la curiosidad, exclamó: "¿Lo decías en serio?".
+
+Aunque Orión fue interrumpido, no pudo evitar sentir satisfacción al ver cómo Fiona se daba cuenta. Era como si hubiera captado la esencia de su mensaje sin que él necesitara pronunciar palabra alguna. Cerró los labios y asintió, mirándola fijamente mientras hablaba con firmeza: «Sí. Dije cada palabra de ayer en serio». Al fin y al cabo, creía que las acciones hablan más que las palabras, y cuantas menos palabras necesitara para que ella lo entendiera, mejor sería para ambos.
+
+Orión observó atentamente cómo la expresión de Fiona se volvía vacía, y ella se levantó rápidamente de su asiento. Presionándose firmemente las orejas con las manos, negando con la cabeza vigorosamente, incrédula. Confundida, Fiona comenzó a caminar de un lado a otro, cambiando de dirección sin rumbo fijo, permaneciendo cerca del pozo. De repente, exclamó, con la voz teñida de escepticismo: «No, mientes. Debe haber algún propósito oculto tras tus palabras». Sus palabras estaban impregnadas de amargura, pues se había acostumbrado a que los hombres de su generación la ignoraran, a pesar de su estimada condición de guerra. Entonces, ¿por qué un joven como Orión, varios años menor que ella, expresaría cuentos sentimientos sin ningún motivo oculto?
+
+¡Fue simplemente imposible!
+
+En ese momento, Orión sintió una opresión en el pecho, drenándole las energías a cada segundo. Si hubiera anticipado la reacción de Fiona, se habría acercado a ella con más cuidado, a diferencia de las otras mujeres con las que se había topado. "¿Y si no tengo segundas intenciones?", preguntó, con una mezcla de frustración y sinceridad en la voz. "Créeme, es la primera vez que me siento tan obligado a convencer a una mujer de su belleza". Orión negó con la cabeza, con una mezcla de decepción y resignación en el rostro, mientras se levantaba.
+
+Fiona cesó bruscamente sus vagabundeos sin rumbo y se quedó quieta, de espaldas a Orión. Apretó los dientes con fuerza; su expresión era una intrigante mezcla de furia y una fachada aparentemente vacía. Lentamente, se giró para clavarle una mirada intensa. «Si de verdad no tienes segundas intenciones», lo desafió con desconfianza en la voz, «demuéstralo». Con pasos decididos, Fiona acortó la distancia que los separaba, cubriendo la distancia restante en tan solo un par de zancadas. Y en una asombrosa demostración de agilidad, su figura apareció ante él, materializándose justo delante de él en tan solo dos pasos.
+
+A Orión se le secó la garganta al presenciar otra impresionante demostración de habilidad, que confirmaba aún más la formidable condición de guerrera de Fiona. Sin embargo, mantuvo la compostura, sin ceder a la intimidación. "¿Cómo quieres que te lo demuestre?", preguntó, mirándola a los ojos con férrea determinación. Su reacción fue más de admiración que de miedo.
+
+Fiona entrecerró los ojos, observando atentamente a Orión. A juzgar por sus palabras del día anterior, era evidente que el joven sentía un interés genuino por ella, llegando incluso a preguntarle si tenía pareja. Con eso en mente, exclamó: «Bésame».
+
+"¡Huh!" Los pensamientos de Orión se desestabilizaron de repente.
+
+El rostro inicialmente inexpresivo de Fiona se transformó en una sonrisa. «Tranquilo, no lo consideraré una propuesta», le aseguró. Solo quería demostrarle que sus intenciones eran sinceras, sin segundas intenciones. ¿Y qué mejor manera de demostrárselo que besándola? Si realmente la encontraba poco atractiva, no se atrevería a besarla y desistiría. Sin embargo, si de verdad la encontraba lo suficientemente atractiva como para preguntarle sobre su situación sentimental, entonces esta era una oportunidad de oro para robarle un beso sin consecuencias ni condiciones.
+
+Con la cabeza inclinada hacia él, Orión se quedó sin palabras al ver cómo Fiona se separaba los labios y su aliento le acariciaba suavemente el rostro. Pero, contrariamente a lo que Fiona esperaba, una sonrisa se dibujó en el rostro de Orión al ponerse de puntillas, levantando la cabeza. Sorprendida, Fiona echó la cabeza hacia atrás instintivamente, pero antes de darse cuenta, Orión ya la había abrazado por el cuello, uniendo sus labios con los de ella en un abrazo perfecto.
+
+Cuando los ojos de Fiona se abrieron en ese momento, sintió los labios de Orión infiltrándose en los suyos, explorando y saboreando el sabor, Orión, por otro lado, cerró los ojos, decidido a aprovechar cada segundo y sumergirse por completo en el momento.
+
+Tras diez segundos palpitantes, durante los cuales Orión mordisqueó juguetonamente sus labios durante cinco segundos más, se apartó a regañadientes, jadeando, con la mirada fija en el rostro enrojecido de Fiona. La observar mientras ella reflejaba su estado de ahogo, con los ojos entrelazados en un entendimiento tácito.
+
+"¿Ahora me crees?", preguntó Orión, aún abrazado al cuello de Fiona. En lugar de soltarla, el bajón y la rodeó por la cintura. A pesar de que la situación había dado un giro inesperado, no pudo resistirse a aprovechar la oportunidad. "No sé tú, pero yo lo considero una propuesta. Fiona, ¿quieres...?" Antes de que pudiera terminar la frase, Fiona presionó la mano con fuerza contra la boca de Orión, con una expresión cada vez más feroz. Sin saber qué emoción prevalecería en medio del torbellino de sus ojos, Orión realizó un movimiento audaz y le mordió ligeramente la palma, lo que hizo que Fiona retirara la mano bruscamente. Con los brazos de Orión aún aferrados a su cintura y la musculosa figura de Fiona, sumada a su estado de inquietud, se tambaleó hacia atrás, arrastrándolo sin querer. Los dos terminaron enredados, con Orión cayendo encima de ella.
+
+¡Sí! El dolor momentáneo los hizo estremecer, pero con sus habilidades físicas mejoradas, la sensación era casi inexistente. Sin embargo, lo que realmente descubrió a Fiona fue la rápida acción de Orión de inmovilizarla contra el suelo. Su mente se quedó en blanco por un momento cuando él extendió sus brazos por encima de su cabeza, sujetándolos firmemente con ambas manos. En esa posición vulnerable, pronunció las palabras: «Fiona, ¿quieres ser mi compañera?».

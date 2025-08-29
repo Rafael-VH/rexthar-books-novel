@@ -1,0 +1,32 @@
+
+Capítulo 184 Bajo el complejo del jefe de la aldea
+
+"Hagamos la prueba una vez más, esta vez con todos ustedes concentrándose en ella", ordenó el jefe de la aldea, señalando con el dedo a la abuela Celia. Los sanadores asintieron al unísono, con expresiones decididas. Activando sus hechos únicos, sus manos emitieron una cautivadora mezcla de suave luz púrpura y dorada, canalizándola hacia el estómago de la abuela Celia. El tiempo parecía extenderse mientras los minutos transcurrían con anticipación.
+
+Finalmente, con un agotamiento colectivo, los sanadores desactivaron sus hechos y retiraron las manos. Un suspiro de cansancio escapó de sus labios al volver la mirada hacia el jefe de la aldea. Negando con la cabeza una vez más, la otra sanadora habló, con un matiz de incredulidad en la voz: «Hemos vuelto a revisar, jefe, pero los resultados siguen sin cambios». Su mirada se dirigió a la abuela Celia, llena de dudas e incredulidad, antes de volver a centrar su atención en el jefe de la aldea. Con voz cargada de certeza, pronunció el veredicto: «Sí, está embarazada».
+
+En cuanto el sanador pronunció esas palabras, un profundo silencio invadió la habitación. Sin decir una sola palabra, el jefe de la aldea me miró fijamente y giró rápidamente hacia la puerta. Su orden quedó suspendida en el aire, resonando por toda la habitación: «Orión, sígueme». No fueron solo las palabras en sí, sino el tono autoritario lo que transmitió la urgencia e importancia de su invocación. Comprendí al instante que obedecer no era una opción, sino una necesidad.
+
+Presintiendo la gravedad de la situación, intercambié una mirada significativa con mi madre, Reena, y la abuela Celia; sus miradas preocupadas reflejaban la mía. Me volví hacia los curanderos y les supliqué: «Cuídenlos». Con paso firme, redirigí mi atención hacia el camino que había tomado el jefe de la aldea, apretando el paso para alcanzarlo.
+
+Al llegar finalmente a su lado, note su semblante severo, la mirada fija en el suelo y las manos firmemente entrelazadas tras la espalda. Sin siquiera mirarme en busca de confirmación, me planteó una pregunta que quedó en el aire: "¿Entiendes las implicaciones de estos resultados?". Era como si ya supiera de mi presencia, esperando que estuviera a su lado.
+
+"No puedo decir que lo entienda del todo", respondió, con curiosidad. Aunque la respuesta esperada habría sido un simple "sí", el tono y la elección de palabras del jefe de la aldea insinuaban algo más profundo.
+
+"En efecto, no podrías", afirmó el jefe de la aldea, confirmando mis sospechas. Nos guió por diferentes pasillos hasta llegar a una pequeña puerta de madera tendida en el suelo, cerca del final del estrecho pasadizo. Con un fuerte pisotón, el jefe de la aldea rompió las cerraduras, destruyéndolas como si no tuviera paciencia para tales formalidades. Agachándose, abrió la puerta de golpe, haciéndola caer al suelo con un "¡Bam!", revelando una escalera de madera oculta debajo.
+
+Agarrando una linterna que colgaba de la pared, iluminando nuestro entorno, el jefe de la aldea bajó la escalera con cautela, asegurándose de que no se movía antes de indicarme que lo siguiera. Observé cómo su cabeza desaparecía en las profundidades; la única fuente de luz provenía de la linterna brillante.
+
+Consciente de que estaba a punto de aventurarme en un lugar oculto y desconocido para la mayoría de la aldea, decidí silenciar la sensación inquietante que crecía en mi interior y continué bajando, adaptando mis acciones a las indicaciones del jefe de la aldea.
+
+A medida que descendía en la oscuridad, me asaltó una ligera preocupación por la profundidad a la que estaba a punto de llegar. Sin embargo, para mi alivio, el descenso no me pareció tan desalentador como temí al principio. En cuestión de minutos, alcancé al jefe de la aldea y, aprovechando la oportunidad, salté de la escalera a pocos metros del suelo. Con precisión y destreza, aterricé sano y salvo en tierra firme, con la mirada fija en la inconfundible figura del jefe de la aldea.
+
+El aire aquí abajo era fresco y húmedo, y la tenue luz de la linterna proyectaba sombras inquietantes sobre el terreno accidentado que nos rodeaba. Era un marcado contraste con la calidez y la familiaridad del pueblo de arriba.
+
+"¿Tienes idea de para qué sirve esta habitación debajo de mi cabaña?", preguntó el jefe de la aldea, dándose la vuelta y comenzando a caminar, tras asegurarse de que había aterrizado sano y salvo. Negando con la cabeza, admití mi ignorancia. Un destello de comprensión brilló en sus ojos, y avanzamos a través de la enorme cámara, cuya inmensidad indicaba su capacidad para albergar a un número considerable de personas. Sin embargo, la tenue luz de la linterna apenas alcanzaba las paredes, dejando sus detalles en la oscuridad.
+
+Hizo una pausa, recorriendo con la mirada la cámara antes de comenzar a aclarar su significado. «Esta habitación, o más precisamente, la cámara subterránea bajo el recinto del jefe de la aldea, se construyó por si nuestra aldea era atacada inesperadamente e invadida por las amenazantes enredaderas Vylkr una vez más», explicó.
+
+"Si aún tuvieras recuerdos...", susspiró, "no tendría que contarte las historias que tu madre debió compartir durante la noche para mantenerte a ti ya tus hermanos lejos del río y de las traicioneras lianas Vylkr". Seguimos adelante, entrando en una habitación más grande. "Pero ya que tus recuerdos se han perdido, escucha con atención", instó, haciendo pausas intermitentes antes de continuar: "Siempre ha sido una regla asegurar que la generación más joven tenga suficientes hijos antes de que su fertilidad disminuya, asegurando así el futuro de nuestra aldea. En su día, cumplimos ese objetivo, llegando a ser millas. Sin embargo, en nuestro afán por preservar nuestra población, olvidamos un detalle crucial. La razón por la que solo unas pocas lianas Vylkr se aventuraron en nuestra aldea fue su preocupación por el bosque A medida que crecíamos en número, nos convertimos en su objetivo principal".
+
+Continuó detallando cómo los encuentros ocasionales con las enredaderas Vylkr aumentaron de unas pocas veces por semana a varias al día. Al principio, se confundieron con una mayor agresividad, hasta una noche horrible en la que las enredaderas Vylkr atacaron desde todas las direcciones. Se cobraron vidas sin piedad antes de que los guerreros pudieran organizarse para defenderse. Los aldeanos, indefensos ante las enredaderas Vylkr, solo podían soportar la destrucción de sus hogares y la extinción de sus vidas.

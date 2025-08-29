@@ -1,0 +1,32 @@
+
+Capítulo 125 [Bonificación] Crecimiento (2)
+
+Al sentarme en la tierra arenosa y cenicienta, noté que la hija mensajera del jefe de la aldea observaba su entorno con ojos inquisitivos antes de posarse sobre mí. Desafortunadamente para ella, el guerrero Jean se negó rotundamente a repetir la información que había revelado previamente hasta que todo el grupo despertara. Afortunadamente, aunque la espera fue algo tediosa, todos despertaron de su letargo treinta minutos después.
+
+Al presenciar la confusión entre el grupo, el guerrero Jean abandonó sus bocadillos y se lanzó una explicación detallada, reiterando lo que me había revelado previamente y exponiendo más a fondo algunos puntos clave, particularmente las limitaciones únicas de cada guerrero.
+
+"Déjame explicártelo", dijo el guerrero Jean, respirando hondo antes de comenzar a explicar: "Un guerrero con un potencial de tres estrellas puede consumir sin problemas una enredadera Vylkr de una, dos o tres estrellas. Sin embargo, no puede con una Vylkr de cuatro estrellas, lo que lo hace más débil en comparación con un guerrero con un potencial de cuatro estrellas. Por eso, a un guerrero con un potencial de estrellas menor le puede resultar difícil manejar una enredadera Vylkr de mayor calificación", diagnóstico con cansancio tras tantas explicaciones.
+
+"Pero es mejor conocer tu límite", continuó, con renovada urgencia. "Si alguna vez intentas consumir una enredadera Vylkr con una calificación de estrellas superior a tu potencial, la aldea estará ahí para ayudarte a escapar del peligro. Sin embargo, pase lo que pase, será tu culpa. Y si alguna vez te encuentras con una enredadera Vylkr con una calificación superior a tu potencial, no vayas solo. La aldea no sacrificará guerreros para salvar a alguien que, insensatamente, se puso en peligro cuando podría haberse evitado fácilmente", advirtió con severidad.
+
+"Pero si aún así decide ignorar mi advertencia, estás solo, siempre y cuando no pongas en peligro a la aldea", terminó, con un dejo en la voz de preocupación por aquellos que pudieron ignorar su consejo.
+
+Tras terminar su explicación, el guerrero Jean se puso de pie de un salto y golpeó el suelo con el pie izquierdo, con un sonoro "¡Boom!" y "¡Crack!". La fuerza del impacto penetró fácilmente la tierra cenicienta, captando no solo mi atención, sino también la de los demás.
+
+"Sé que algunos de ustedes ya conocen la inimaginable fuerza de un guerrero", dijo, sacando la pierna de los escombros que había creado con una sonrisa. "Pero como pueden ver, y la mayoría probablemente ya lo habrán adivinado, la energía Vylkr puede activar cada hueso y músculo de nuestro cuerpo, haciéndonos más fuertes que el aldeano promedio. Sin embargo, hay una trampa..." Hizo una pausa, dejando que sus palabras se asimilaran antes de continuar. "Si quieren aprovechar todo el potencial de la energía Vylkr y la fuerza de su cuerpo, deben entrenarlo. Por suerte para todos ustedes, nuestra fortaleza no solo sirve para proteger la aldea, sino también como un lugar para entrenar su cuerpo o llevarlo al límite."
+
+Mientras escuchaba atentamente, todo empezó a tener sentido. El impresionante físico musculoso de Fiona era resultado de su dedicación a entrenar su cuerpo al máximo, como ya me había confesado. También se estaba haciendo evidente por qué todos los guerreros que había conocido hasta entonces tenían una complexión fuerte e imponente, aunque no tan extrema como la de Fiona. La energía Vylkr podía activar cada hueso y músculo de nuestro cuerpo, pero cada guerrero debía entrenar y esforzarse para alcanzar su máximo potencial.
+
+Después de la conferencia, el guerrero Jean se dirigió al resto del grupo y comenzó a dar instrucciones sobre cómo combinar sus energías y activar sus dones.
+
+Tras dominar la combinación de sus energías y activar sus dones, Grim se transformó en su forma de águila real cornuda. Esta vez, era más grande que nunca, con una envergadura de unos 5 metros (15 pies) y una longitud de 2 metros (6 pies). Al elevarse, sus enormes alas proyectaron una sombra sobre nosotros, bloqueando el sol.
+
+Mientras observaba el cielo, una repentina oleada de calor me llamó la atención. Me giré y vi a la hija de Thak con una brizna de fuego verde intenso ardiendo en la mano, ahora con una sombra oscura debajo. Las llamas se hicieron más brillantes y grandes al extender las manos hacia los lados, y observamos cómo se extendían hacia el cielo, incendiando el aire a nuestro alrededor. Las llamas estuvieron peligrosamente cerca de tocar a Grim, quien había estado flotando en el cielo, pero él rápidamente descendió al suelo y la miró con desaprobación.
+
+"Lo siento", se disculpó de inmediato la hija del mensajero del jefe de la aldea. "No me había fijado en ti". Su tono era indiferente, pero sincero. Casi chasqueé la lengua en señal de desaprobación, pero antes de que pudiera hacerlo, sentí que mi cuerpo ascendía lentamente hacia el cielo mientras mis piernas se despegaban del suelo.
+
+No tuve que adivinar quién estaba detrás de mi repentino despegue cuando alcé la vista y vi a Ursa sonriéndome. «Ahora puedo controlar perfectamente mis movimientos en el aire, e incluso llevar a alguien conmigo», exclamó con un tono alegre y contagioso. Con un movimiento de muñeca, Ursa ordenó a los vientos que me elevaran junto a ella. Mientras nos elevábamos, no pude evitar disfrutar de la vista. Y mientras Ursa bailaba y daba vueltas a mi alrededor en el aire, no pude resistirme a echar un vistazo a su agujero rosado y sus nalgas desnudas, que se veían aún más impresionantes desde este ángulo.
+
+¡AARRGHHH! El repentino y agonizante grito atravesó el aire, manteniendo bruscamente nuestras acciones. Todas las miradas se dirigieron hacia el origen del sonido, donde vimos a Gorg convulsionando y vibrando, como si sintiera un dolor insoportable. Sus manos estaban iluminadas por una intensa luz naranja brillante que iluminaba el área circundante.
+
+"Está despertando su don", exclamó Ursa sorprendida, abriendo muchos los ojos al mirarlo, sin duda curiosa por saber cuál podría ser su don. Sin embargo, no puedo evitar fruncir el ceño ante la escena. Por lo que había deducido, estaba seguro de que despertar el don no debía ser tan doloroso. Debía ser tan natural como respirar. Al menos, así lo experimenté al despertar mi propio don.

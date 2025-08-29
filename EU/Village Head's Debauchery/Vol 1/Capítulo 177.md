@@ -1,0 +1,32 @@
+
+Capítulo 177 Señales
+
+"Jaaaa... Jaa... ¿Eso es todo?", jadeó Reena, con la voz llena de cansancio. Cayó de rodillas, con las manos temblorosas aferrándose al suelo para sostener su cuerpo exhausto.
+
+"Sí, yo..." empezó a decir Melta, pero sus palabras se detuvieron bruscamente al ser cautivada por algo dentro de los confines de la zona hermética de la granja. Numerosas vallas altas de madera cerraban el espacio, creando una sensación de aislamiento. Fue entonces cuando sus ojos vislumbraron una vibrante planta verde amarillenta, con matices de amarillo, que se hundía en la tierra; sin embargo, sus raíces expuestas delataban su presencia y su acción.
+
+Sin dudarlo, Melta extendió ambos brazos hacia la planta en movimiento, mostrando su don. Giró la cabeza y le susurró a Reena: «No te preocupes, yo me encargo», su voz apenas audible en medio de la escena. Con la mirada fija en la planta, las manos acercándose, y una expresión decidida en su rostro, Melta hundió la mano con fuerza en la tierra, sujetándose a la planta desafiante que luchaba por escapar.
+
+Sus brazos alargados impulsaron su cuerpo hacia adelante hasta quedar arrodillada sobre la tierra, justo encima de la planta. Con un movimiento rápido, Melta volteó la planta, liberando una de sus manos para crear un hueco en la tierra antes de introducir con fuerza las raíces. El cuerpo de la planta permaneció suspendido fuera de la tierra, mientras que sus raíces quedaron atrapadas bajo la superficie, selladas e impidiendo que escaparan.
+
+"¡Uf!... ¡Qué cerca estuvo!", exclamó Melta con cansancio, con la voz impregnada de agotamiento, mientras secaba el sudor de la frente. Su mirada permaneció fija en la planta terca y retorcida que tenía ante ella, luchando sin descanso por liberarse de las garras de la tierra.
+
+"Tranquila", resonó de repente una voz familiar tras sus hombros. Sorprendida, Melta giró la cabeza para ver cómo Reena activaba su don, dirigiendo su influencia hacia la inquieta planta. Como si estuviera en trance, la planta se tranquilizó gradualmente, y sus agitados movimientos se calmaron. Una vez satisfecha, Reena desactivó su don, jadeando tras haberlo usado incesantemente durante todo el día.
+
+A medida que la noche se oscurecía y continuaban con su arduo trabajo, Reena no pudo evitar sentir una ligera amargura. La situación le recordó la noche anterior, cuando Orión llegó tarde a casa. Todo se debía a que había aceptado la impráctica sugerencia de su mejor amiga de usar su don para garantizar su ascenso. Una rápida mirada a su amiga hizo que Reena deseara poder usar su poder con la gente, ordenándole a Melta que se abofeteara unas cuantas veces más por obligarlos a trabajar hasta tan tarde.
+
+Sin percatarse de los pensamientos de Reena, Melta percibió la profunda frustración de su amiga y no pudo evitar soltar una tos fingida antes de hablar. «No me mires como si todo esto fuera culpa mía», afirmó, con un tono de tono defensivo. «¿Quién hubiera imaginado que una de las recién llegadas ya conocería a Dariya? Incluso yo le tenía miedo cuando me uní, y eso te incluye a ti también. Así que, es justo decir que ninguna de nosotras esperaba que resolvieran sus problemas con tanta facilidad con la ayuda de una ninfa arbórea supervisora ​​en su sección».
+
+Sin embargo, Reena no quedó convencida con la explicación de Melta. "¿Y quién era la que insistía a gritos en cuidar las plantas turcas delante de la señora Shani, alegando que allí se necesitaba nuestra ayuda?", replicó, con el cansancio a punto de abrumarla hasta las náuseas. El agotamiento por usar su don repetidamente durante un periodo prolongado le había pasado factura.
+
+"Pero no es mi culpa que ninguno de los dos hubiera previsto la intervención de la Sra. Shani al enterarse del acoso que las ninfas de los árboles infligieron a esos tipos. ¿Y no te fijaste en cómo sonrió y asintió con aprobación al vernos allí? Claramente aprobó mis palabras", replicó Melta, con la voz teñida de agravio.
+
+Reena dejó escapar un suspiro cansado, sacudiendo la cabeza con agotamiento. En ese momento, solo podía concentrarse en el cansancio que latía en lo profundo de su estómago, lo que la hacía encorvarse varias veces más. De repente, un mareo le nubló la vista y una ráfaga de aire inundó sus pulmones cansados, obligándola a respirar más profunda y rápidamente.
+
+Melta notó rápidamente la alarmante situación y exclamó: «Reena, ¿estás bien?». Levantándose rápidamente, se secó las manos a los costados antes de acunar con ternura el rostro de Reena para evaluar su estado. Presintiendo un evento inminente, Melta se hizo a un lado rápidamente, con la mirada fija en Reena. Tal como Melta previó, Reena apartó el rostro de las manos y se giró rápidamente hacia un lado, instintivamente agachándose. Con una serie de jadeos, Reena vomitó inesperadamente en el suelo, respirando profunda y rápidamente mientras intentaba calmar sus nervios tras el inquietante suceso.
+
+"Reena, ¿estás...?" La pregunta de Melta se fue apagando con una expresión de sorpresa en el rostro, pero antes de que pudiera continuar, Reena se recuperó rápidamente de sus vómitos. Sin embargo, un cansancio persistente persistía en su cuerpo. "No te preocupes, estoy bien. Solo necesito descansar un poco", la tranquilizó Reena con un deje de agotamiento en la voz. Comprendiendo la necesidad de su amiga de descansar, Melta asintió comprensivamente, rodeando la cintura de Reena con la mano para ayudarla a avanzar con facilidad. Juntas, salieron de la sección que albergaba uno de los cultivos más resistentes de la granja, encaminándose hacia las puertas vigiladas.
+
+Sin embargo, mientras salían de la casa para volver a casa, Melta no podía quitarse de encima la culpa, consciente de que había sido culpa suya por presionar demasiado a Reena. No pude evitar pensar en maneras de compensar a su amiga, consciente de que necesitaba enmendar sus actos.
+
+«Quizás debería hablar con esa chica mañana», reflexionó Melta, con la mente fija en la misma chica que compartía un vínculo extraordinario con Dariya y que parecía tener también cierta conexión con la Sra. Shaní. Quizás podría aprovechar esta relación para aliviar el peso del ascenso de Reena, con la intención de corresponderle el favor tendiéndole una mano amiga en el futuro.

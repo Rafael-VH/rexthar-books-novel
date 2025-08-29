@@ -1,0 +1,32 @@
+
+Capítulo 181 La única excepción
+
+"¡Ejem! Pero hay más", anunció mi madre, captando nuestra atención una vez más. Esta vez, no fui la única que se giró para mirarla. Gina y Reena, junto con las cinco mujeres sentadas a nuestro lado, también la miraron fijamente. Dos de ellas tenían una intensidad peculiar en la mirada, y todos nos quedamos preguntándonos qué estaba a punto de revelar.
+
+"Y por último", dijo con una sonrisa peculiar, con las palabras suspendidas en el aire, "creo que también podría estar embarazada". Su mirada se dirigió a las cinco mujeres mayores sentadas frente a nosotras. "Y sí, el padre de mi hijo también es Orión. Así que quiero que cada una de ustedes responda con sinceridad si ha tenido kushi con mi hijo". Mi madre examinó a cada una de las cinco mujeres, mirándolas con los ojos entrecerrados. En ese momento, me quedé sin palabras, sin saber cómo reaccionar ni cuáles serían los siguientes pasos, ya que la conversación dio un giro inesperado.
+
+"Bueno, todavía no he tenido sexo con él, así que no creo que esté embarazada... todavía", declaró la abuela Derry, guiñándome un ojo con una sonrisa pícara. En cada grupo, siempre había una persona excéntrica que destacaba, así que no le presté mucha atención y centré mi atención en la siguiente mano levantada.
+
+La abuela Vivian bajó la mano y dijo: «Orión liberó su semen en mi vagina antes. Así que, aunque aún no estoy segura de si estoy embarazada, dadas las circunstancias actuales, sería prudente consultar con un sanador de confianza para confirmar quién de nosotras está realmente embarazada». Asentí, pues la sugerencia me pareció razonable. Mi madre también se acercó y respondió rápidamente: «Muy bien, lo arreglaremos en cuanto terminemos». Su mirada se dirigió entonces a las dos mujeres que quedaban en la habitación.
+
+La única mujer cuyo nombre aún no sabía meneó la cabeza con una leve sonrisa. «Desafortunadamente, no he tenido la suerte de tener kushi con Orión», confesó. Mi madre ascendió y luego centró su atención en la abuela Ingrid. A pesar de las ganas de expresar mis pensamientos sobre nuestro encuentro de ayer, no pude evitar sentir curiosidad por lo que tenía que decir.
+
+"No, no creo haber tenido la fortuna de tener sexo con Orión", respondió la abuela Ingrid, lo que me hizo asentir brevemente. Sin embargo, en el fondo, sabía que mentía. Considerando su comportamiento desesperado de ayer, instándome a que le follara el coño hasta que se le humedeciera, era de esperar que hubiera inventado una excusa plausible. Al fin y al cabo, sí que me la había follado hasta el cansancio, lo que significaba que tarde o temprano, los síntomas del embarazo empezarían a manifestarse.
+
+Sinceramente, además de la abuela Celia, sentí unas fuertes ganas de confrontar a Ingrid y averiguar qué demonios le pasaba por la cabeza. En cualquier caso, después de determinar el número de posibles bebés que podría tener, comenzó la conversación principal. Mi madre tomó la iniciativa, explicando las nuevas disposiciones del complejo de ahora en adelante. No fue una conversación seria, sino que se centró principalmente en cómo se repartirían las tareas y las responsabilidades de la granja y la plaza del mercado.
+
+Sin embargo, de repente, decidió por unanimidad que la abuela Ingrid y Derry tendrían la tarea de encontrar un curandero que realizara una prueba de embarazo rápida y confirmara sus sospechas.
+
+Treinta minutos después, durante los cuales desayunamos y nos enfrascamos en una charla sin sentido de la que decidí aislarme, más absorto en mis propios pensamientos, el agotamiento empezó a agobiarme. Observé cómo la abuela Ingrid y Derry regresaban con un médico, un hombre que parecía desconcertado por el ambiente animado de nuestra cabaña.
+
+Quizás le sorprenderá la reunión de mujeres aparentemente poco atractivas en un solo lugar, o quizás fue la petición de mi madre de que examinara los vientres de las mujeres con las que me había acostado y confirmara la presencia de una vida potencial en su interior. Sin embargo, el sanador se acercó e inmediatamente comenzó su examen. Examinó cuidadosamente a las tres mujeres y concluyó que, efectivamente, presentaban signos de embarazo, excepto una.
+
+Sorprendentemente, estaba mentalmente preparada para escuchar la noticia de que todas las mujeres con las que había tenido intimidad estaban embarazadas. Así que, cuando supe que solo la abuela Vivian no estaba embarazada de mi hijo, la duda se apoderó de mí. Después de todo, recordaba vívidamente las numerosas veces que había eyaculado dentro de ella, convirtiéndola en la candidata ideal para el embarazo. "¿Estás segura, sanadora?", preguntó mi madre con escepticismo, pues ya habían compartido historias sobre mis encuentros engañosos.
+
+Según su entendimiento, mientras mi pene penetraba sus vaginas, el embarazo estaba casi garantizado. Al observar la expresión desconcertada de mi madre, una tensión incómoda se cernió sobre mí y me invadieron emociones contradictorias. Me invadieron oleadas de alivio y esperanza, pero no pude evitar sentir una punzada de lástima cuando la abuela Vivian se retiró silenciosamente a su asiento.
+
+El sanador, con expresión decidida, afirmó: «Sí, estoy seguro. Además, ya ha pasado sus años fértiles, así que los resultados no son anormales». Tras una breve pausa, el sanador señaló con el dedo a la abuela Celia y continuó: «En fin, comparada con ella, la señorita Vivian está tan sana como cualquier otra anciana».
+
+Al final, mi madre y los demás solo pudieron aceptar el resultado a regañadientes y pagar al sanador, permitiéndole continuar con su día mientras nosotras seguíamos con el nuestro. "¿Y ahora qué hacemos?", preguntó finalmente, dirigiéndome a todas las mujeres presentes. Quizás fue la expresión solemne y distante de la abuela Vivian lo que enfrió el ambiente, pero mi madre me miró con una sonrisa cansada y susspiró antes de preguntar: "¿Y qué crees que deberíamos hacer ahora, Orión?". Aunque presentía que mi madre ya había considerado numerosos planos y opciones, también percibí cierta falta de confianza en su actitud.
+
+Comprendiendo la situación, negué con la cabeza y expresé la única idea razonable que me vino a la mente: «Vamos a ver al jefe de la aldea. Ya que hemos confirmado algunos embarazos, necesitaremos su ayuda, ya que esta es una situación inusual. Además, deberíamos informarle ahora, o alguien más podría darle la noticia tarde o temprano».

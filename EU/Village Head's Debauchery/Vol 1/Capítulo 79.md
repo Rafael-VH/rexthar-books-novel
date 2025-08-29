@@ -1,0 +1,30 @@
+
+Capítulo 79 Tala privilegiada
+
+Tras recorrer el camino de tierra, llegué al recinto del jefe de la aldea. Esta vez, los guardias de la entrada eran los mismos que ayer. Me reconocieron y, con cierta familiaridad, les entregué mi ficha de madera. Tras examinarla de inmediato, me la devolvieron, permitiéndome entrar al recinto.
+
+Al acercarme a la cabaña, mis ojos captaron de inmediata la reunión afuera. No me sorprendería ver que algunos ya habían llegado, pero lo que no esperaba era la multitud de hombres y mujeres que conocí el primer día de la ceremonia del despertar. Y allí, entre la multitud, estaban el jefe de la aldea y su mensajero, Thak, con su hija de pie a su lado.
+
+Fruncí el ceño, estrujándome la cabeza buscando su nombre, pero seguía siendo esquivo. Caí en la cuenta de que había desaparecido el primer día de nuestro despertar, justo antes de que se materializara el majestuoso árbol cristalizado extraviado. Lo que me desconcertó fue que Thak nos había dicho que participaría en la ceremonia de este año. Pero como la confusión amenazaba con abrumarme, lo descarté, dándome cuenta de que ni siquiera había notado su ausencia hasta ahora. Entonces, ¿por qué debería preocuparme por su desfile ahora?
+
+Sin previo aviso, giró la cabeza bruscamente hacia mí y nuestras miradas se cruzaron. Su mirada entrecerrada sugería que creía que la había estado observando. Aparté la mirada rápidamente, finciendo no verla. En cambio, mi atención se fijó en un objeto de origen desconocido, cuidadosamente dispuesto sobre una plataforma. Al acercarme, entrecerré los ojos al ver el globo terráqueo negro y redondo que sostenía un palo largo. Aunque no tenía ni idea de qué era, podía intuir su importancia. Estaba situado en un lugar destacado entre los profesores, con Fiona de pie cerca, lo que le daba un aire de importancia.
+
+Poco después, el jefe de la aldea dio un paso al frente y se aclaró la garganta. Se hizo el silencio entre la multitud y todas las miradas se posaron en él. Nos antes de monitorear de comenzar su discurso. «Confío en que todos hayan llegado a tiempo para el último día de su ceremonia de despertar», dijo, haciendo una breve pausa como si esperara una respuesta. Al no obtener respuesta, se volvió hacia Fiona y añadió: «Parece que sus estudiantes no son tan valientes como me hicieron creer. El miedo escénico ante tan poco público no es precisamente digno de elogio». Al mirar a mi alrededor, vi la evidencia de nerviosismo en forma de pequeñas gotas de sudor en sus frentes, indicando la enorme tensión que soportaban.
+
+Aunque podría haber respondido fácilmente a su pregunta, me encontraba de un humor poco sociable, sobre todo por la palpable incomodidad que se respiraba en el ambiente. Fiona exhaló un profundo suspiro de decepción antes de revisar nuestros números y confirmarle al jefe de la aldea: «Todos están presentes». Él asintió en respuesta antes de volver a centrar su atención en nosotros. «Excelente. Entonces, comencemos de inmediato», declaró, y añadió con urgencia: «Pónganse todos frente al cristal negro en línea recta».
+
+Tan pronto como el jefe de la aldea terminó de hablar, el grupo formó rápidamente una línea recta que se extendió hacia el misterioso orbe de cristal negro. Mientras me colocaba en la línea, noté a Sura y Ursa, pero era demasiado tarde ya que Sura ya había tomado su lugar al frente mientras que Ursa logró pararse justo frente a mí. Sin embargo, mi sorpresa se amplificó cuando vi a la hija de Thak posicionándose asertivamente al frente de la línea, aumentando así nuestro número a diecisiete.
+
+Me vino a la mente una idea fugaz: me pregunté si la hija de Thak gozaba de algún privilegio gracias a la posición de su padre como mensajero del jefe de la aldea. Porque parecía evidente que tenía ciertas ventajas que podía aprovechar.
+
+Una vez en la fila, el jefe de la aldea continuó con voz seria. «Con el cristal negro, probaremos y determinaremos quién de ustedes es capaz de liberar su fuerza interior, para que sepamos adónde pertenecen, ya que este es el último día de su ceremonia de despertar», dijo, haciendo una pausa para asimilar sus palabras.
+
+Luego añadió: «Solo tienes que colocar la mano derecha sobre el cristal negro y canalizar tu don hacia él. Si aún no has despertado tu don, simplemente deja que la energía del cristal fluya hacia ti. Una vez que hayas terminado, retira las manos y deja que tus maestros se encarguen del resto». Nos recorrió con la mirada a cada uno y preguntó con autoridad: «¿Lo entienden?».
+
+Un gesto de asentimiento colectivo recorrió el grupo cuando el jefe de la aldea habló. "Comencemos entonces", dijo con tono autoritario antes de alejarse y situarse al lado de Thak.
+
+Uno de los hombres se adelantó con expresión rígida y declaró: "La primera persona que se presente debe hacerlo". La expectación era palpable cuando un niño, que estaba primero en la fila, se acercó con entusiasmo y se detuvo a escasos centímetros del reluciente cristal negro. Con un gesto de aprobación del hombre, el niño extendió su mano derecha y la colocó con cuidado sobre la superficie lisa del cristal. En cuestión de momentos, el cristal comenzó a emitir una luz blanca lechosa deslumbrante que era tan radiante que todos podían verla, incluso bajo el sol abrasador.
+
+Tras unos tensos segundos, la luz cegadora se disipó lentamente y el chico retirado con cuidado la mano del cristal negro. Aunque tenía un lugar privilegiado para observar, sus acciones quedaron ocultas a mi vista. Sin embargo, pude ver que la mirada del hombre estaba fija en el cristal, como si lo estuviera escrutando en busca de algo específico.
+
+Mientras esperábamos con la respiración contenida, transcurrió un minuto entero hasta que la voz del hombre resonó de repente: "¡Una estrella!". El anuncio resonó con fuerza en el silencio, provocando algunos suspiros de engaño del jefe de la aldea y los maestros. La voz del hombre que siguió fue mucho más baja, casi arrepentida, y continuó: "Desafortunadamente, eres incapaz de despertar tu fuerza interior".

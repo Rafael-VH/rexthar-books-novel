@@ -1,0 +1,38 @@
+
+Capítulo 176 El impulso hacia adelante (R18)
+
+Mientras el cuerpo de la abuela Ingrid sucumbía al agotamiento, se permitió reclinarse contra la robusta figura de Orión, buscando un respiro de las intensas sensaciones que la habían consumido. Sintiendo la calma momentánea, Orión se liberó hábilmente de debajo de su seductora figura, con la mente fija en el festín que le aguardaba.
+
+Y a pesar de darse cuenta de que probablemente había pasado más tiempo del previsto, Orión tomó una decisión firme: su madre tendría que esperar un poco más, ya que un asunto de máxima urgencia demandaba su atención inmediata.
+
+Mientras la abuela Ingrid luchaba por recuperar el aliento, Orión se preguntaba cómo podría quitarle la tulga. El reto residía en que llevaba un minivestido de manga larga que se ceñía excitantemente a sus muslos, sin dejarle ninguna forma visible de desvestirla, a menos que la abuela Ingrid tomara la iniciativa de levantarse y quitárselo.
+
+Sin embargo, como la abuela Ingrid no podía quitarse el vestido sola, Orión se subió encima de ella, presionando su cuerpo contra el suyo, sintiendo la forma de sus pezones puntiagudos y excitados bajo la tela de su tulga. Sus manos recorrieron su curvilíneo trasero, asegurándose de que no hubiera obstrucciones mientras levantaba gradualmente su tulga hasta la cintura. Con una rodilla entre sus piernas, las separó por completo, mientras deslizaba la otra pierna dentro, creando una posición en V mientras se dirigía con entusiasmo su pene palpitante hacia su húmedo coño.
+
+Mientras tanto, su mirada permaneció fija en la abuela Ingrid, y ella, a su vez, le devolvió la mirada con una expresión arrepentida de aturdimiento, con los ojos rebosantes de intensidad. En ese preciso instante, la abuela Ingrid se encontró considerando que deseaba que Orión la embarazara o aceptara a su hijo de esa manera. Sin embargo, el destino intervino, privándola del poder de decisión, mientras Orión se acercaba con firmeza, hundiendo delicadamente su palpitante erección en sus labios rosados ​​y húmedos. Esta acción provocó una indescriptible ráfaga de aire, que escapó de sus labios sin emitir sonido alguno, mientras una expresión peculiarmente satisfactoria se dibujaba misteriosamente en su rostro.
+
+"Bah~~~"
+
+Orión retiró su vigorosa hombría, su mirada firme fija en su expresión hipnótica, y con un decidido "Bah~~", la hundió de nuevo, profundizando. Vio cómo su boca se abría de nuevo, emitiendo un gemido inaudible, acompañado de una profunda exhalación que escapó de sus labios. La visión ante Orión parecía demasiado surrealista; Mientras la miraba fijamente, surgió un deseo irresistible de atraer sus labios hacia los de ella. Deseaba iniciar un beso, donde mordisquearía y saborearía sus suculentos labios, compartiendo aliento e intercambiando saliva, creando una unión embriagadora.
+
+Y mientras la abuela Ingrid lo miraba fijamente, Orión no pudo evitar sentir una energía perceptible entre ellos, insinuando deseos que trascendían el simple contacto visual. Era como si existiera un acuerdo tácito, arraigado en su encuentro tácito, sin necesidad de palabras para expresar su entendimiento mutuo.
+
+En ese momento, Orión retiró su pene rugoso y lo hundió con maestría en los delicados pliegues rosados, emitiendo un satisfactorio "~~Bah". La boca de la abuela Ingrid se abrió obedientemente de nuevo, liberando una profunda y silenciosa bocanada de aire, similar a las anteriores, que impactó contra el rostro de Orión y lo llenó de renovado vigor. Decidido, deslizó la mano izquierda bajo su grueso regazo, levantándola con destreza hasta posarla sobre su cintura. Esto le permitió ensanchar aún más su húmeda vagina, intensificando su conexión al acelerar el ritmo.
+
+"PAH~~" "~~PAHH~~~" "~~PPAAHHH~~". Durante toda la escena, la abuela Ingrid enganchó voluntariamente su pierna izquierda alrededor de su cintura, sin perder el ritmo en su aguda observación. A pesar de la rápida transición, de su vagina goteante como el centro de atención a encontrarse repentinamente teniendo sexo con Orión, la claridad de la situación seguía siendo algo confusa para ella. Era el objetivo final, el propósito mismo de su encuentro planeado, pero la abuela Ingrid no lograba comprender sus emociones ni dar sentido a las inesperadas sensaciones que la recorrían. La realidad que se desplegaba ante sus ojos se desviaba de sus expectativas iniciales, dejándola perpleja e insegura de cómo navegar por este territorio desconocido.
+
+"Pahh~~" Una vez más, los labios de la abuela Ingrid se abrieron en una seductora invitación, desatando un gemido silencioso que permitió que su respiración bailara con la de Orión en una armoniosa colisión. El puro éxtasis que corría por las venas de Orión lo impulsó a liberar su propio coro de gemidos, abriendo la boca con cada emocionante embestida. Tras cada embestida estimulante, la abría voluntariamente, creando un espacio íntimo donde sus respiraciones se fundían en un intercambio apasionado. "PAAHH~~" "Paahh~~~" "~~pahh~~" "~~PAHH~~~".
+
+Con el paso del tiempo, una repentina revelación lo asaltó: ni siquiera se había dado cuenta de que su cabello se había soltado, cayendo en cascada y extendiéndose por el suelo en un espectáculo fascinante. La vista de sus mechones plateados le añadió un encanto encantador a la abuela Ingrid, dejando a Orión completamente hechizado por su apariencia en ese preciso instante. Sin embargo, su mirada intensa e inquebrantable permaneció ininterrumpida, negándose a liberarse mutuamente de su apasionado trance. No fue hasta que Orión, sin darse cuenta, soltó una maldición entrecortada: «Maldita sea», sintiendo que su palpitante miembro alcanzaba su clímax, listo para derramar su semilla en el abrazo expectante de sus labios invitantes.
+
+Consciente de no querer que el apasionado encuentro terminara precipitadamente, Orión retiró con delicadeza la mano izquierda de sus piernas y movió la otra, que había estado apoyando su peso cerca de su cabeza, para apoyarse en la cintura. Su atención se centró en la parte baja de su cintura, asegurándose de que las yemas de sus dedos se hundieran en su piel flexible, como una sandía madura. Con renovado vigor, inició un movimiento rítmico, penetrando y saliendo a una velocidad acelerada, puntuando cada movimiento con un rotundo "~~~paah~~~ ~~pahhhh~~~". Todo el peso de su cuerpo descansaba sobre su rodilla firmemente plantada, asentándolo mientras orquestaba una coreografía deliberada, sincronizando el movimiento de la cintura de la abuela Ingrid chocando contra la suya con cada vibrante embestida.
+
+En un giro, sus piernas cautivadoras se entrelazaron naturalmente y se aseguraron alrededor de su cintura, amplificando el desafío para que Orión retuerza su liberación del semen.
+
+"PAAHH~~ PAAAAHHH~~~~ PPPAH~~~"
+
+Tras incontables minutos resistiendo la creciente presión, la contención de Orión llegó a su límite. Golpeó con fuerza con la mano derecha el atractivo trasero de la abuela Ingrid, como si intentara penetrarla con fuerza contra su pene. Con una confesión apasionada, gimió: «¡Me corro!».
+
+En un instante sobrecogedor que pareció detener el tiempo, la abuela Ingrid, que había estado soportando la embestida implacable, emitió un gemido largo y gratificante, audible y sin filtro. El calor abrasador del semen de Orión se expandió, impulsado por una explosión de intensidad invisible, encontrando su destino en las profundidades de sus empapadas entrañas.
+
+"UuuuuuAAAHHHHH~~~~".

@@ -1,0 +1,32 @@
+
+Capítulo 182 Confrontación en el complejo del jefe de la aldea
+
+La abuela Ingrid susspiró, con un déje de cansancio en la voz, y respondió: «Tiene razón. Ahora que hemos confirmado todo lo que necesitábamos hacer por nuestra cuenta, es hora de buscar el apoyo y la asistencia del jefe de la aldea. Nos traerá la tranquilidad que tanto necesitamos, saber que contamos con su apoyo».
+
+Cuando la abuela Ingrid terminó de hablar, su mirada se fijó brevemente en mí antes de desviarla. No pude descifrar qué pensamientos ocupaban su mente en ese momento. Sin embargo, decidió tener una conversación privada con ella más tarde, para desentrañar cualquier disparate que le rondara la cabeza. Era evidente que ocultar que ya había tenido un encuentro casual conmigo solo traería problemas si salía a la luz por sí solo.
+
+El resto del grupo avanzando, reconociendo la necesidad de pedirle apoyo al jefe de la aldea. Sin embargo, la idea de que los nueve invadiéramos el recinto del jefe a la vez parecía imprudente, pues atraería demasiada atención y podría obstaculizar nuestra entrada. Un escrutinio tan indeseado era lo último que necesitábamos.
+
+Por lo tanto, al final, se decidió que solo mi madre, la abuela Celia, Reena y yo haríamos la visita. Eran ellas quienes llevaban a mis hijos en brazos en ese momento, por lo que su presencia fue crucial para la conversación con el jefe de la aldea.
+
+Al salir de la cabaña, emprendimos el sendero que conducía a la residencia del jefe de la aldea. Mientras caminábamos bajo el abrasador sol de la tarde, nos topamos con varios aldeanos que se dedicaban a sus quehaceres, en grupos o solos. Finalmente, llegamos a nuestro destino: la residencia del jefe de la aldea.
+
+Por suerte, los guardias apostados en las puertas eran rostros conocidos. Habiéndose visto a mí ya los demás en Múltiples ocasiones con la Guerrera Jean, me reconocieron como una guerra novata de la generación del despertar de este año. Sus ojos reflejaban un destello de familiaridad al acercarme, lo que me evitó tener que presentar la ficha de madera que me dieron durante la ceremonia del despertar.
+
+Confiado en mi capacidad para manejar la situación, les pedí a mi madre ya los demás que me dejaran tomar la iniciativa, sabiendo que así todo sería mucho más llevadero. Con paso seguro, me acerqué a los guardias, con sus ojos fijos en mí, y les comuniqué mi intención de reunirme urgentemente con el jefe de la aldea, enfatizando que tenía noticias cruciales que darles.
+
+Al principio, los guardias mostraron cierta vacilación. Sin embargo, con un enfoque deliberado y aparentemente casual, revelé sutilmente mi identidad como Orión, quien había despertado un potencial de Seis Estrellas para la fuerza interior. En un instante, su actitud se transformó en una de discreto respeto. Uno de los guardias se aclaró la garganta antes de decir: «Aunque no puedo concederle acceso inmediato al jefe, puedo informar al mensajero de su presencia». Si bien esto significaba que tendría que comunicarle primero el propósito de nuestra visita al Sr. Thak, antes de explicárselo de nuevo al jefe de la aldea, era una pequeña molestia considerando que otros solían tener que informar al jefe con días de antelación para las citas, a menos que se tratara de una ocasión especial o involucrara a alguien importante, como yo.
+
+Comprendiendo la situación, asentí en señal de acuerdo y observé cómo uno de los guardias ingresaba al recinto, dirigiéndose hacia una de las cabañas más grandes.
+
+Después de cinco minutos, vi al guardia acercándose, acompañado por el Sr. Thak. Al llegar, el Sr. Thak miró perplejo a las tres mujeres y luego me miró a mí, frunciendo el ceño. "Escuché que no estabas con el grupo cuando partieron hoy para su entrenamiento de guerreros. Sin embargo, verte aquí sugiere que tienes una razón para tu retraso y tu repentina llegada".
+
+Al oír su tono severo, asentí y opté por compartir la noticia discretamente, susurrándole al oído. Me pareció la manera más eficiente de transmitir la información y agilizar nuestra entrada a la reunión. Con un gesto sutil, le indiqué que se acercara y adelantara las orejas.
+
+A pesar de su ceño fruncido, Thak permaneció atento, reconociendo la gravedad de la situación al observar la seriedad de mi expresión. Obedeció y acercó sus oídos a mis labios, dispuesto a escuchar. En voz baja, dije: "¿Ves a esa mujer mayor de allá?". Vi cómo su mirada se desvió de inmediato y se fijó en la abuela Celia y mi madre. Continué, especificando: "La del extremo izquierdo...", asegurándome de que su atención se centrara únicamente en la abuela Celia. Luego, con un susurro aún más bajo, le di la noticia: "Está embarazada".
+
+En cuanto la noticia llegó a sus oídos, el Sr. Thak abrió los ojos de par en par, asombrado, e instintivamente echó la cabeza hacia atrás. Me miró con una mezcla de sorpresa, confusión y profunda contemplación. Poco a poco, su expresión se transformó en calma y me miró con los ojos entrecerrados. Con aire de autoridad, habló con voz seria: «Sr. Orión, ¿comprende la gravedad de intentar engañar al mensajero del jefe de la aldea, descuidar su entrenamiento y solicitar una audiencia con él sin una razón plausible ni justificable?». Sus palabras transmitían una seriedad y serenidad sin precedentes, algo que nunca antes había visto en él.
+
+Sin embargo, en lugar de prolongar la situación discutiendo con él, respondió rápidamente: «Señor Thak, si sospecha que soy deshonesto, ¿por qué no llama a un sanador y lo confirma usted mismo? Además, no me saltaría mi entrenamiento de guerrero ni vendría esta tarde solo para engañarlo. Pero si de verdad miento, acepta con gusto cualquier castigo que usted elija. Le aseguro que no me quejaré ni una sola vez. Sin embargo, le solicito amablemente que primero confirme la verdad».
+
+Al calmarse su expresión tras escuchar mis palabras, las dudas parecieron disiparse, pero persistía una sospecha persistente, que se intensificaba de forma inusual. Podía percibir su contemplación, forcejeando con mis palabras, pero aún albergando dudas razonables. El Sr. Thak se aclaró la garganta y dirigió su atención a uno de los guardias apostados en las puertas, antes de dar la orden: «Traigan a uno o dos curanderos cualificados disponibles. Infórmenles que alguien en el recinto del jefe de la aldea requiere sus servicios». El guardia respondió de inmediato a la orden y siguió su camino. El Sr. Thak se volvió hacia nosotros, indicándonos a los cuatro que lo seguíamos.

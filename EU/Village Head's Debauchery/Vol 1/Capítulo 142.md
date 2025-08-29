@@ -1,0 +1,32 @@
+
+Capítulo 142 Socios
+
+En medio de las tentadoras distracciones de los bustos generosos y las nalgas desnudas que a menudo llegaban a sus manos, había pospuesto o incluso olvidado indagar sobre un asunto crucial. Sin embargo, se dio cuenta de la necesidad de adquirir este conocimiento ahora, ya que allanaría el camino para que sus planos futuros se desarrollaran sin esfuerzo, agilizando su camino hacia la manifestación.
+
+Por eso, Orión sintió una necesidad urgente de intervenir y soltó: "¡Mamá, espera!" Las manos de Celeste se congelaron momentáneamente, todavía agarrando su pene endurecido, mientras giraba la cabeza para encontrarse con su mirada. En sus ojos, una mezcla de sorpresa y curiosidad bailaba. "¿Qué pasa?", preguntó, su voz teñida con un toque de incertidumbre, preguntándose si había malinterpretado sus intenciones o si había algo más que necesitaba expresar. Orión respiró profundamente, ordenando sus pensamientos antes de hablar, sus palabras llenas de sinceridad, "Quiero una explicación detallada de lo que realmente significa ser pareja". Celeste arqueó una ceja, un destello de sorpresa cruzó su rostro. "¿Eso es todo?", cuestionó, su tono delataba un dejo de escepticismo.
+
+—Sí —asintió Orión con énfasis—. No dejes nada fuera. Cuéntame todo lo que necesito saber sobre ser pareja y tener una.
+
+Celeste no pudo evitar anticipar otra petición poco convencional de su hijo, una que invariablemente culminaría en una abrumadora liberación de su potente semen, como había sido un tema recurrente desde el día en que se había convertido en su pareja. Sin embargo, ella había esperado mucho tiempo esa misma pregunta y se encontró casi divertida por el momento tardío de su pregunta. Sin embargo, dentro de esta diversión, su corazón se fortaleció aún más con el conocimiento inquebrantable de que su hijo la amaba a tal punto que estaba dispuesto a demostrarlo sin comprender completamente las profundidades de lo que estaba ahondando.
+
+Carraspeando, comenzó, con una voz llena de sabiduría y experiencia: «Una vez que te conviertes en pareja, las fronteras entre lo suyo y lo tuyo se desvanecen, y ambos se convierten en una familia unida. Todo lo que pertenece a uno se comparte con el otro, creando un vínculo de unidad. Además, tener pareja significa que ya no tienes la autoridad exclusiva para tomar decisiones trascendentales sin consultar a tu pareja. Debes buscar su opinión y considerar su perspectiva antes de tomar decisiones o acuerdos importantes».
+
+Tras una breve pausa, dejó que sus palabras flotaran en el aire, dejando que su peso calara hondo. Luego, continuó con un entusiasmo disipado en la voz: «Esto también se aplica a la cuestión de tener hijos. Si bien las parejas mayores, que quizá no sean tan fértiles, quizá no se preocupen por este aspecto, para las parejas más jóvenes y fértiles que aún no han llegado a la vejez, es fundamental hablar y planificar si desean tener hijos atractivos en el futuro. O, por otro lado, asegurarse de que su pareja no tenga un hijo con una pareja poco atractiva. Sin embargo, este aspecto se puede resolver si se posee suficiente riqueza para el trueque. En ese caso, el atractivo físico podría perder importancia para los demás».
+
+Al concluir su explicación, una leve risa se le escapó de los labios, mezclada con un dejo de cansancio. «Creo que eso lo abarca todo», comentó, rematando su declaración con un suspiro cansado.
+
+Aunque Orión comprendía las palabras de su madre, incluyendo los sentimientos subyacentes sobre sus sacrificios para criarlo a él y a sus hermanas, optó por guardarse esos pensamientos. Expresarlos en ese momento parecía irrelevante, ya que desviaría la conversación sin aportar nada significativo. Además, ahora que había adquirido una comprensión completa de lo que significa ser pareja y tener una, apreciaba su simplicidad, pues no se alejaba mucho de lo que había supuesto.
+
+Con esto en mente, planteó una pregunta: "Entonces, si te pidiera que no hicieras kushi, ¿quién lo aceptaría, sin importar nada?".
+
+Celeste detuvo las suaves caricias en su pene venoso, con la mano congelada en el aire al oír las palabras de su hijo. Lentamente, giró la cabeza para mirar a Orión a los ojos, con un destello de fastidio en la mirada. "Qué atrevido eres al asumir que tu madre recibe ofertas para tener sexo con ella", replicó, con un toque de fingida diversión en la voz. Negando con la cabeza en fingida desaprobación, no pudo evitar soltar un bufido. "¿Sabes? No te conviene molestar a tu madre así", lo reprendió juguetonamente.
+
+Soltando la mano de su miembro palpitante por un momento, ajustó su agarre, su toque se volvió más firme y contundente. Con renovada intensidad, comenzó a bombear su pene, provocando una profunda inhalación y exhalación de Orión en respuesta.
+
+"Bueno, solo bromeaba", intervino Orión rápidamente, con una sonrisa juguetona en los labios. En el fondo, ya sabía la respuesta, pues había escuchado conversaciones similares mientras se recuperaba en la cabaña de la tía Greta. Sin embargo, sintió la necesidad de pedir confirmación, solo para confirmar su entendimiento.
+
+Mientras la tulga de su madre se deslizaba con gracia por su cintura, ella maniobraba hábilmente sus generosas nalgas a lo largo del borde de su pene hinchado, aplicando simultáneamente fuertes embestidas y sacudidas. Los sentidos de Orión estaban abrumados por las sensaciones placenteras que recorrían su cuerpo, pero su atención permanente en la conversación.
+
+"Pero dado que ese es el caso", continuó con voz firme, "nunca puedes tener kushi con nadie, ni siquiera si yo lo permitiera. ¡Jamás!". Sus palabras transmitían un aire posesivo, un deseo de proteger el afecto de su madre. Aunque no estaba seguro de si existía en su aldea un poder como el control mental, sus encuentros con la jefa de la aldea, quien poseía la capacidad de vislumbrar el futuro, le habían inculcado la creencia de que todo era posible cuando se trataba de dones despertados.
+
+Celeste, desconcertada por la firme declaración de Orión, hizo una pausa, con los ojos abiertos de par en par. "¿Estás diciendo que incluso si recibo una oferta atractiva por Kushi en el futuro, debería rechazarla, incluso si cambias de opinión y me das permiso?", preguntó, buscando una aclaración. Sin embargo, antes de que pudiera recibir una respuesta, la sala se llenó de un sonido "¡Pum!" cuando la mano de Orión hizo contacto con sus generosas nalgas.

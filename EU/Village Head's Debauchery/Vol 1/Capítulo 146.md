@@ -1,0 +1,32 @@
+
+Capítulo 146 El Plan
+
+A pesar del tono bajo de Fiona, sus palabras se transmitieron con naturalidad a través de la serena quietud que rodeaba el pozo, ayudadas por la suave caricia de la fresca brisa matutina. El sonido llegó a oídos de Orión, lo que lo impulsó a levantarse con gracia mientras ella se acercaba velozmente.
+
+—Como era de esperar, siempre llegas temprano —comentó Orión, levantando ligeramente la mirada para encontrarse con la imponente presencia de la mujer frente a él.
+
+Mientras tanto, Fiona se quedó sin palabras, sin saber cómo reaccionar ante la situación inesperada. Sin embargo, mientras Orión esperaba pacientemente su respuesta, se acercó y logró decir: «Tú también llegas temprano». Orión correspondió al gesto, agachándose en silencio para sacar la fruta Kalna de su olla de barro antes de ofrecérsela. «Aquí tienes tu pago».
+
+Aunque una persistente duda persistía en lo más profundo de la mente de Fiona, sugiriendo que el joven persistiría en molestarla, incluso después de haberlo amonestado, solo experimentó una ligera sorpresa por su llegada temprana. Sin embargo, el hecho de que decidiera actuar como si los sucesos del día anterior no hubieran ocurrido la dejado preguntándose si había decidido tomarse en serio sus palabras, si ya no sentía la necesidad de asociarlas, o si simplemente fincía ignorancia. No obstante, mientras no le recordaran su imponente falta de atractivo, consideró la situación tolerable.
+
+"De acuerdo", asintió Fiona, mientras sus pasos la llevaban con gracia alrededor de Orión. Colocó con delicadeza la fruta kalna en su lugar habitual junto al pozo antes de colocar con cuidado la bolsa que llevaba en la parte trasera. Una vez en su posición designada, lista para aprovechar su don, le indicó a Orión que acercara su olla de barro. Comprendiendo su orden tácita, él recuperó rápidamente la olla y se acercó.
+
+Mientras Fiona activaba su don, aprovechando su habilidad innata para extraer agua de las profundidades de la arena, anticipó que Orión la llamaría o intentaría captar su atención de alguna manera. Sin embargo, para su asombro, un profundo silencio envolvió su interacción. Orión permaneció atento, sin hablar ni hacer ningún movimiento perceptible, como si su único propósito fuera esperar pacientemente a que ella terminara su tarea para poder recuperar su vasija de barro y desde a casa. La ausencia de sus habituales bromas o intentos de interacción dejó a Fiona desconcertada, pero también recelosa por su estoico comportamiento.
+
+A pesar de las preguntas que la rondaban, una vez que Fiona terminó de llenar la olla de barro de Orión, no pudo contener la curiosidad. Mientras lo observaba intentar agacharse para recuperarla, preparándose para equilibrarla sobre su cabeza, sus labios se entreabrieron con una pregunta ardiente. "¿Qué es?", preguntó, recorriendo su figura con la mirada antes de posarse en sus ojos con una intensa concentración.
+
+Orión frunció el ceño, mostrando una mezcla de confusión y curiosidad. "¿Qué es qué?", ​​preguntó; su voz se tiñó de genuina perplejidad. Fiona entrecerró los ojos en respuesta, con un destello de sospecha danzando en ellos. Una multitud de pensamientos revolotearon por su mente, entrelazándose y desenredándose hasta que finalmente se detuvo. Con una exhalación resuelta, expresó sus observaciones en voz alta.
+
+"Has permanecido inusualmente callado, sin apenas pronunciar palabra", empezó Fiona con un tono cargado de sospecha. "Por lo que he observado estos últimos días, este no es tu comportamiento habitual". Tras una breve pausa, continuó con una mezcla de intriga e incertidumbre en la voz. "Entonces, o bien no planeas nada, o bien este silencio es solo una actuación".
+
+En su interior, una sonrisa triunfal se dibujó en los labios de Orión, incapaz de contenerla. Originalmente, había planeado conversar con Fiona poco después de su llegada. Sin embargo, tras considerarlo detenidamente, decidió que guardar silencio resultaría en un resultado más revelador. La curiosidad lo impulsó a observar cómo reaccionaría ella ante su inusual quietud. Si no lo llamaba antes de su partida, había urdido un plan: una gran artimaña que incluía un contratiempo orquestado que le brindaría la oportunidad perfecta para revelar su identidad de guerrero. Confiado en la infalibilidad de su plan, Orión anticipó que sus palabras, cuidadosamente elegidas, captarían la atención de Fiona, obligándola a reevaluar su percepción de él, ya que ella misma era una guerrera.
+
+"¿No fuiste tú quien sugirió que volviéramos al punto inicial de nuestra conversación?" La voz de Orión tenía un matiz de confusión, frunciendo el ceño con perplejidad. Parecía como si no pudiera comprender la repentina pregunta de Fiona. Su expresión delataba su genuina incomprensión, como si su pregunta estuviera más allá de su comprensión.
+
+Mientras las palabras de Orión flotaban en el aire, Fiona se encontró mirándolo con los ojos abiertos, momentáneamente desconcertada. Su respuesta resonó con una autenticidad inesperada que la tomó por sorpresa. En la tranquilidad de su cabaña, más tarde ese mismo día, mientras buscaba consuelo y reflexionaba sobre la discusión que había compartido con Orión, Fiona experimentó un momento de lucidez.
+
+Al repasar mentalmente sus interacciones, Fiona reconoció que Orión era, en efecto, la primera persona que mostraba genuina curiosidad por su don desde que empezó a trabajar en el pozo. Se acercó a ella con una sed insaciable de conocimiento, como un niño curioso cuya curiosidad se intensificaba cuanto más intentaba satisfacerla. Sumida en sus pensamientos, Fiona comprendió que, después de todo, las palabras de Orión quizá tuvieran un significado genuino.
+
+Sin embargo, a pesar de la persistente duda de Fiona, no podía descartar la posibilidad de que Orión, un joven, la percibiera genuinamente, una mujer imponente, curvilínea y musculosa, como hermosa sin albergar segundas intenciones. La idea parecía desconcertante y cuestionable, y la invasión de la incertidumbre. Sin saber cómo reaccionar, se quedó sin palabras, con los labios apretados en un gesto de contemplación.
+
+Al observar la lucha de Fiona por contener sus palabras, mientras sus ojos recorrían su cuerpo intentando contener sus pensamientos, Orión no pudo resistirse a seguir adelante con el plan esbozado. Con un teatral suspiro de engaño, dejó escapar una exagerada expresión de frustración. Negando con la cabeza, fingio desánimo mientras se agachaba para recuperar su vasija de barro una vez más.

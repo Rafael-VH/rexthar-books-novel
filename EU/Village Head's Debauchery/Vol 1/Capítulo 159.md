@@ -1,0 +1,32 @@
+
+Capítulo 159 Aceptar la verdad
+
+Sin embargo, al observar la expresión del sanador y presenciar cómo activaba repetidamente su don, Ingrid sintió un creciente nerviosismo. Su rostro perplejo parecía extenderse aún más, intensificando los latidos de su corazón y provocando una sensación ominosa que le recorría todo el cuerpo. Una sensación de expectación flotaba en el aire mientras esperaba ansiosa su respuesta.
+
+La mirada del hombre se desvió hacia arriba, fijándose en la de Ingrid mientras intentaba transmitir su mensaje. Tras un breve contacto visual, desvió la mirada hacia abajo, sacudiendo la cabeza con desaliento. Un suspiro, con una matiz de resignación, se escapó de sus labios. «Verá, mi don se limita a reparar y escanear órganos internos. Así que, a menos que la persona requiera dicha intervención, poco puedo hacer», explicó.
+
+Ingrid asintió, comprendiendo la explicación del sanador. Lo habían elegido por recomendación y por su precio, considerando la presencia de otros con hechos similares que se manifestaban de diferentes maneras. Los modestos honorarios del sanador se ajustaban a lo que podían permitirse, lo que lo convertía en la opción más adecuada.
+
+Al percibir la atención absorta de Ingrid y de quienes la rodeaban, la sanadora se sintió obligada a compartir más información. «Sin embargo, cuando activé mi don e intenté explorar su cuerpo, sentí algo más en su interior…»
+
+La impaciencia de Meldra la venció e intervino: "¿Cómo qué?". Su entusiasmo flotaba en el aire, impulsando al sanador a aclararse la garganta y reanudar la conversación a pesar de la interrupción. "No puedo asegurarlo, pero las únicas veces que experimentó una sensación como esta son...". Sin embargo, una oleada de incertidumbre lo invadió, dejándolo vacilante e inseguro sobre si compartir sus pensamientos.
+
+La impaciencia de Ingrid aumentó, reflejando el creciente deseo que sentía por expresar sus pensamientos. Sin embargo, antes de que pudiera intervenir, el sanador reanudó la conversación rápidamente, percibiendo la urgencia en el ambiente. «Solo él experimentó esta sensación en mujeres embarazadas», reveló. «En tales casos, mi consejo inicial sería que se abstuvieran de esforzarse, mientras preparamos algunos remedios herbales para que los consuman. Sin embargo, en esta situación particular...»
+
+Hizo una pausa y exhaló profundamente, como si lidiara con el peso de sus palabras. «Estoy perdido», confesó. «Es imposible que una mujer de su edad, que ya haya perdido la fertilidad, esté embarazada». El sanador empresarial con la cabeza, desconcertado, con evidente frustración. «Como puede ver, estoy perplejo. Simplemente no sé qué hacer».
+
+La habitación cayó en un silencio inquietante mientras los ojos de Ingrid se encontraron con los de Celia, inusualmente apagada; luego su mirada se desvió para encontrarse con la expresión derrotada y los hombros caídos de Meldra.
+
+Rompiendo el silencio, un agudo carraspeo resonó en el aire. La voz de la abuela Derry se abrió paso, con un dejo de diversión en sus palabras: "¿Estás sugiriendo que está embarazada?". El sanador negó con la cabeza con vehemencia, descartando la idea por absurda. "No, solo afirmo que sus órganos internos dan la sensación de embarazo. Sin embargo, no puedo confirmarlo, ya que es absurdo considerarlo."
+
+Al oír las palabras del sanador, Ingrid sintió que ya había oído suficiente. Dio media vuelta y se retiró a su habitación, cogiendo cinco frutas Kalna antes de regresar rápidamente a la sala principal.
+
+Ingrid extendió las frutas hacia el sanador, con la mirada fija en él mientras decía: «Toma, este es tu pago». El hombre, absorto en sus pensamientos sobre el estado de la abuela Celia, quedó sorprendido por el gesto de Ingrid. La miró sorprendido antes de negar con la cabeza. «Lo siento, pero no puedo aceptar esto. No fue lo que hablamos», dijo con voz vacilante.
+
+Ingrid entrecerró los ojos y frunció el ceño profundamente, mientras una sensación de confusión nublaba su expresión. "¿No es este el precio que acordamos?", preguntó, intentando comprender si algo había cambiado repentinamente en la negociación. El hombre aclaró rápidamente, negando con la cabeza una vez más. "No, no es eso. Lo que quiero decir es que aún no he hecho nada, y ni siquiera conozco la naturaleza de su dolencia. Por lo tanto, no creo que sea justo aceptar un pago tan significativo", aclaró, disipando el malentendido que se había formado en la mente de Ingrid.
+
+La determinación de Ingrid se hizo patente al negar con la cabeza con firmeza. «En ese caso, no tienen de qué preocuparse. Consideren las frutas restantes como un anticipo para nuestros futuros tratamientos», declaró con firmeza, entregándolas en los brazos del desconcertado sanador. Había oído historias sobre el carácter excepcional del sanador, lo que la llevó a elegirlo en lugar de a su sanador habitual. Esta vez, debían abordar la situación con la máxima seriedad y cautela, ya que requería toda su atención y una cuidadosa reflexión.
+
+Al darse cuenta de que no había forma de rechazar las frutas adicionales que le ofrecían, el sanador las aceptó a regañadientes y las guardó en su bolso. Luego, desvió la mirada hacia Ingrid y los demás, con una mezcla de gratitud y profesionalismo en la voz: «En ese caso, me despido. Recuerden contactarme cuando necesiten más tratamiento». Ingrid y los demás asintieron, agradeciendo la comprensión del sanador. Con un último asentimiento, el hombre se puso de pie, giró sobre sus talones y salió por la puerta.
+
+En cuanto se marchó, un silencio denso se apoderó del grupo, como si estuvieran asimilando colectivamente la repentina revelación de la que solo ellos eran conscientes. Cada uno estaba absorto en sus pensamientos, excepto la abuela Celia, quien inmediatamente se reclinó en el suelo, doblando las piernas y dejando al descubierto sus muslos bien formados. Respirando hondo para tranquilizarse, la abuela Celia finalmente recuperó la compostura y dirigió su mirada hacia Ingrid, desviándose brevemente hacia Meldra y sus demás compañeros de cabaña. Con una voz teñida de cansancio, Celia dijo la verdad que habían estado impidiendo. «Ahora que está confirmado, ya no hay necesidad de negarlo», dijo.
