@@ -1,7 +1,4 @@
 
-#### Capítulo 412. Douluo Emperador del Veneno Esmeralda [412]
-
-
 "Sólo estaba dando una evaluación objetiva".
 
 Las palabras de Qian Daoliu eran sinceras porque, en realidad, el talento de Tang Chen era ligeramente superior al suyo. Después de todo, su desarrollo dependía en gran medida de su alma marcial de nivel divino, los Serafines, y la herencia del Salón Espiritual.

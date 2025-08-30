@@ -1,7 +1,4 @@
 
-#### Capítulo 380. Douluo Emperador del Veneno Esmeralda [380]
-
-
 Aunque Bibi Dong creía que todavía tenía sentimientos por Yu Xiaogang, cuando vio la repugnante figura que tenía delante, se encontró reacia a creer que esa persona era Yu Xiaogang.
 
 Tras un instante, por fin salió de sus pensamientos, reprimiendo las emociones que la embargaban. Ordenó a los Caballeros del Templo que colocaran a Yu Xiaogang en el suelo y despidió a todos los demás de la habitación.

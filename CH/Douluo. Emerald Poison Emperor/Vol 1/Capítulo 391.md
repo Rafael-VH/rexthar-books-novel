@@ -1,7 +1,4 @@
 
-#### Capítulo 391. Douluo Emperador del Veneno Esmeralda [391]
-
-
 Muros de mala calidad, por muy buenos que fueran, incluso hechos por el Clan de la Defensa, ¿cómo podrían resistir la cabeza de Tang Hao, reforzada por la absorción de un conjunto completo de huesos del alma y respaldada por el poder de un Douluo Titulado? Tang Hao se golpeó la cabeza contra la pared con un fuerte "bang, bang, bang", sacudiendo toda la casa. Los cuadros y otras decoraciones de la pared se desprendieron, e incluso la propia pared comenzó a desmoronarse. Tang Yuehua observaba con expresión de dolor.
 
 El setenta por ciento de su dolor era por Tang Hao y el treinta por ciento por su pobre muralla. El daño a la muralla era irreparable, ya que no había nadie del Clan de la Defensa cerca para repararlo. Además, la muralla contenía mecanismos incorporados, que serían imposibles de reparar si se rompían.

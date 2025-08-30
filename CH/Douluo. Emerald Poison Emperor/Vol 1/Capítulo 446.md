@@ -1,7 +1,4 @@
 
-#### Capítulo 446. Douluo Emperador del Veneno Esmeralda [446]
-
-
 Aunque los partidos se decidían por sorteo y los equipos supuestamente se formaban al azar, existía una regla tácita: el primer partido de la competición principal de cada año siempre era una batalla de exhibición. La Real Academia se enfrentaba a una academia relativamente más débil para dar un espectáculo.
 
 Este año, el equipo de la Academia Real Heaven Dou, siguiendo la tradición, se alzó con el primer lugar. Su oponente fue la Academia Heaven Armor, una Academia de Maestros del Alma Avanzada recién ascendida el año pasado.

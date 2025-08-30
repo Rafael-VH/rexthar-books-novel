@@ -1,7 +1,4 @@
 
-#### Capítulo 442. Douluo Emperador del Veneno Esmeralda [442]
-
-
 Tras cultivarse durante mucho tiempo, Tang San abrió los ojos. Su aura irradiaba inconscientemente hacia afuera, y todo su cuerpo irradiaba impaciencia. Sus ojos inyectados en sangre rebosaban de agitación, mostrando signos de inestabilidad emocional e incluso los primeros síntomas de demonios internos que lo dominaban. La siniestra energía que emanaba de su cuerpo lo hacía casi indistinguible de un maestro de almas malvado.
 
 "Cuarenta y seis niveles, cuarenta y seis niveles... ¡no es suficiente, esto todavía no es suficiente!"

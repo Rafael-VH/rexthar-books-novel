@@ -1,7 +1,4 @@
 
-#### Capítulo 381. Douluo Emperador del Veneno Esmeralda [381]
-
-
 "¡¿Me gritaste?!" Al escuchar las palabras de Yu Xiaogang, que eran casi ridículamente ineficaces para ocultar algo, la primera reacción de Bibi Dong fue no preocuparse por la identidad de Tang San ni nada por el estilo. En cambio, miró a Yu Xiaogang con incredulidad. No podía creer que le gritara por culpa de este discípulo.
 
 Al ver la expresión de Bibi Dong, que parecía idéntica a la de décadas atrás, Yu Xiaogang sintió de repente una extraña familiaridad. Fue como si una oleada de confianza lo invadiera.

@@ -1,7 +1,4 @@
 
-#### Capítulo 387. Douluo Emperador del Veneno Esmeralda [387]
-
-
 Devorar la posición divina del Dios Asura para fortalecerse era algo que Chen Ming llevaba tiempo considerando y preparando paso a paso. Por otro lado, la idea del Dios Ángel de devorar la posición divina del Dios Asura surgió del reciente recordatorio de Chen Ming. Sin embargo, a diferencia de Chen Ming, quien lo había planeado y trabajado gradualmente para lograrlo, el pensamiento del Dios Ángel fue solo un impulso fugaz. Como actualmente no tenía conexión con ninguna posición divina en el Reino de Dios, el Dios Ángel dejó de pensar en ello.
 
 ...

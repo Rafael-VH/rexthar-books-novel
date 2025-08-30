@@ -1,7 +1,4 @@
 
-#### Capítulo 406. Douluo Emperador del Veneno Esmeralda [406]
-
-
 ¡Ustedes me obligaron a hacer esto! ¡Dominio del Dios de la Muerte, actívalo! ¡Arte Definitivo: Gran Martillo Sumeru!
 
 Tang Hao, en su frenesí final, desató su Dominio del Dios de la Muerte. El Martillo del Cielo Despejado se multiplicó por varias de la nada. Todas las desventajas y habilidades de control que se habían aplicado a Tang Hao y al Martillo del Cielo Despejado fueron destruidas por la abrumadora explosión de poder del alma. Sin dudarlo, Tang Hao asestó lo que podría ser el último golpe de martillo de su vida directamente a Kaos.

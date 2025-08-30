@@ -1,7 +1,4 @@
 
-#### Capítulo 377. Douluo Emperador Venenoso Esmeralda [377]
-
-
 Bajo la escolta secreta de Tang Hao, Yu Xiaogang, Tang San, Xiao Wu y Dai Mubai llegaron a las afueras de la Ciudad Espiritual. Sin embargo, al contemplar la imponente y majestuosa Ciudad Espiritual a lo lejos, todos, excepto Dai Mubai, quien era tan intrépido como un cerdo muerto, sin miedo al agua hirviendo, sintieron un atisbo de miedo.
 
 Tang San estaba muy preocupado de que su identidad fuera reconocida y atacada por el malvado Salón Espiritual. Xiao Wu temía que su aura de bestia espiritual de 100.000 años quedara expuesta, convirtiéndola en un anillo o hueso espiritual en un lugar como la Ciudad Espiritual, donde los Douluos Titulados abundaban. Yu Xiaogang se preguntaba si aún podría obtener la ayuda de Bibi Dong en su estado actual.

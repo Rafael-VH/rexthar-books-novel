@@ -1,7 +1,4 @@
 
-#### Capítulo 426. Douluo Emperador del Veneno Esmeralda [426]
-
-
 "¡Douluo, rango 99! ¡Esa figura es realmente divina!"
 
 Tang San ni siquiera se atrevió a imaginar qué tipo de cultivo podría recibir si regresara a la Secta Cielo Claro y conociera a su bisabuelo, dado su estado actual.

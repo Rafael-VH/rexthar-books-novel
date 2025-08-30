@@ -1,7 +1,4 @@
 
-#### Capítulo 399. Douluo Emperador Venenoso Esmeralda [399]
-
-
 En ese momento, Tang Hao miró la Hierba Plateada Azul, que se había quedado en silencio repentinamente, pensando que sus palabras habían surtido efecto. Inmediatamente se emocionó aún más y volvió a hablar.
 
 Enfatizó que todos los pecados recaían solo sobre él, Tang Hao, y que Tang San era inocente.

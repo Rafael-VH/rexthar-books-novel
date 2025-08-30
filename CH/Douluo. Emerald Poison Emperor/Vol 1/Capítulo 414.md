@@ -1,7 +1,4 @@
 
-#### Capítulo 414. Douluo Emperador del Veneno Esmeralda [414]
-
-
 Fue solo en ese momento que las palabras de Tang Hao sobre Tang San aclararon las cosas: Tang San no era un alma extraña que había poseído a su hijo, sino un buen hijo, filial con sus padres y dispuesto a asumir responsabilidades. Tang Hao también reveló la existencia de Xiao Wu y sus planes para ella.
 
 Después de escuchar la explicación final de su nieto, Tang Chen permaneció en silencio por un momento antes de hablar lentamente.

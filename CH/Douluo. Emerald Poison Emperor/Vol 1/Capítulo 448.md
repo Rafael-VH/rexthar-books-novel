@@ -1,7 +1,4 @@
 
-#### Capítulo 448. Douluo Emperador del Veneno Esmeralda [448]
-
-
 Al contemplar la escena, Huyan Zhen, entre el público, se puso furioso. Sin dudarlo, liberó el poder de su alma, nivel Douluo, sin ocultarlo. Su alma marcial lo poseyó mientras se preparaba para saltar al escenario y rescatar a la joven generación de su familia.
 
 Sin embargo, antes de que pudiera saltar, un Martillo de Cielo Despejado apareció desde un ángulo inesperado, estrellándose contra la cabeza de Huyan Zhen.

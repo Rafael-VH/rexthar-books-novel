@@ -1,7 +1,4 @@
 
-#### Capítulo 449. Douluo Emperador del Veneno Esmeralda [449]
-
-
 "Padre, ¿por qué…?"
 
 "¡Te has excedido!", interrumpió Tang Xiao a Tang San antes de que pudiera terminar de hablar, reprimiéndolo de inmediato con su aura. Luego, dándose la vuelta, se inclinó respetuosamente ante Ye Renxin mientras sostenía a Xiao Wu en sus brazos.

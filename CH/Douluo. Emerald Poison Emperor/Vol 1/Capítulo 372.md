@@ -1,7 +1,4 @@
 
-#### Capítulo 372. Douluo Emperador del Veneno Esmeralda [372]
-
-
 Mirando al cauteloso grupo de miembros del Clan del Dragón Tirano del Rayo Azul, Dugu Bo arrojó con indiferencia a los maestros de almas inconscientes al suelo. Luego, señaló los cadáveres en la pequeña carreta.
 
 He estado activo fuera del Bosque del Atardecer últimamente, planeando regresar a Ciudad Cielo Dou para reabastecerme y comer algo antes de regresar. Sin embargo, a mitad de camino, noté rastros de un veneno similar a mi Veneno de Serpiente de Fósforo de Jade. Por curiosidad, fui a investigar y descubrí a estos maestros del alma.

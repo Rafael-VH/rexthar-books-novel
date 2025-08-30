@@ -1,7 +1,4 @@
 
-#### Capítulo 375. Douluo Emperador del Veneno Esmeralda [375]
-
-
 Después de que Yu Xiaogang propuso ir al Salón Espiritual, comenzaron a surgir signos de división entre los estudiantes de la Academia Shrek.
 
 Oscar y Ma Hongjun expresaron un fuerte rechazo al Salón Espiritual y no estaban dispuestos a acompañar a Tang San y Yu Xiaogang allí. En cambio, preferían reencontrarse con sus maestros más adelante y continuar sus estudios en la Academia Shrek.

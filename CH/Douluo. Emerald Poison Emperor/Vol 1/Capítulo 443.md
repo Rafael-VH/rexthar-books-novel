@@ -1,7 +1,4 @@
 
-#### Capítulo 443. Douluo Emperador del Veneno Esmeralda [443]
-
-
 Aunque la fuerza de Tang San no era mucho más débil que la de su yo pasado a la misma edad, en términos de potencial, el Tang San actual se quedó muy atrás.
 
 A pesar de que utilizó métodos poco convencionales y cuestionables bajo la guía de Tang Chen para extraer el potencial de su cuerpo, su velocidad de cultivo disminuyó visiblemente a medida que aumentaba el nivel de poder de su alma.

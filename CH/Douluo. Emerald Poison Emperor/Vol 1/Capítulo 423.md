@@ -1,7 +1,4 @@
 
-#### Capítulo 423. Douluo Emperador del Veneno Esmeralda [423]
-
-
 Chen Ming se reunió brevemente con el Cocodrilo Dorado Douluo y le informó del regreso de Tang Chen al continente. Después, abandonó rápidamente la Ciudad Gengxin con el inquieto Dios de la Arrogancia y se dirigió a la Mansión Dugu en la Ciudad Heaven Dou. Poco después, llegaron a la mansión.
 
 En ese momento, Dugu Bo no estaba en la mansión, pues seguía inmerso en el estudio de su posición de semidiós en el Pozo Yin Yang de Hielo y Fuego, con la esperanza de aumentar su fuerza. Mientras tanto, Dugu Yan se encontraba recluida en la academia con su equipo, perfeccionando sus tácticas.

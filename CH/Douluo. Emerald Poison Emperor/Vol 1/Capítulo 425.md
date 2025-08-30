@@ -1,7 +1,4 @@
 
-#### Capítulo 425. Douluo Emperador del Veneno Esmeralda [425]
-
-
 Aunque la Isla del Dios del Mar es una tierra de herencia divina, donde cada maestro del alma puede recibir la prueba divina del Dios del Mar al alcanzar la mayoría de edad para mejorar su cultivo y talento, como el mayor de los Siete Pilares Sagrados, Sea Dragon Douluo era muy consciente de sus limitaciones.
 
 Incluso con la prueba divina, el número total de Douluos Titulados en la Isla del Dios del Mar era de tan solo ocho, incluyendo al sumo sacerdote Bo Saixi, lo que dejaba solo siete entre los Pilares Sagrados. El más débil, la Doncella del Mar Douluo, estaba en el nivel 92, mientras que el propio Dragón del Mar Douluo, el más fuerte, apenas alcanzaba el nivel 95, apenas alcanzando el umbral de un Súper Douluo.

@@ -1,7 +1,4 @@
 
-#### Capítulo 444. Douluo Emperador del Veneno Esmeralda [444]
-
-
 Al principio, nadie le prestó mucha atención a este payaso. Incluso el Clan del Dragón Tirano del Rayo Azul descartó sus payasadas como meras tonterías. Sin embargo, a medida que Yu Xiaogang continuaba con sus planes, su verdadera identidad fue revelada gradualmente a quienes lo conocían.
 
 Como era maestro de Tang San y contaba con el apoyo de Tang Chen, un Douluo Supremo, el Clan del Dragón Tirano del Rayo Azul solo pudo contener su ira y guardar silencio sobre este sinvergüenza. Como resultado, abandonaron parcialmente la Academia del Tirano Azul, dejándola bajo el control de Yu Xiaogang.

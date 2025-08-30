@@ -1,7 +1,4 @@
 
-#### Capítulo 418. Douluo Emperador Venenoso Esmeralda [418]
-
-
 Debido a un pequeño conflicto con mis colegas del Reino Divino, pasaré los próximos siglos aquí en el Continente Douluo. Si tu talento y tu desempeño me satisfacen, me gustaría brindarte orientación adicional.
 
 Pero no te apresures demasiado; ve paso a paso. Por ahora, concéntrate en completar tu primera prueba. A tu edad, lo más importante es mejorar tus atributos básicos.

@@ -1,7 +1,4 @@
 
-#### Capítulo 410. Douluo Emperador del Veneno Esmeralda [410]
-
-
 El ataque de Tang Chen no fue un golpe sencillo. Fue una combinación del desarrollo del Dominio del Dios de la Muerte y las habilidades divinas del Dios Asura. Aunque no fue una explosión de fuerza total, su poder fue asombroso. Incluso con la combinación de fuerzas de Chrysanthemum Douluo y Ghost Douluo, el poder de sus almas se disparó como una compuerta, apenas logrando neutralizar el ataque. Al presenciar esta escena, Tang Chen se sorprendió un poco. En su interior, no pudo evitar reconocer la impresionante fuerza desplegada por los jóvenes Yue Guan (Chrysanthemum Douluo) y Gui Mei (Ghost Douluo). Sin embargo, su cuerpo se convirtió en una estela de imágenes residuales mientras cargaba directamente contra ellos.
 
 El Martillo del Cielo Despejado se balanceó y los Nueve Absolutos del Cielo Despejado se desataron. Varias fuerzas de distinta intensidad convergieron en el Martillo del Cielo Despejado y se estrellaron contra la pareja.

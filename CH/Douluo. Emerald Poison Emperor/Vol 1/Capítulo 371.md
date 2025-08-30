@@ -1,7 +1,4 @@
 
-#### Capítulo 371. Douluo Emperador del Veneno Esmeralda [371]
-
-
 ¡Qué niño tan despreciable! De todas las toxinas que podía imitar, tenía que imitar mi veneno de serpiente de fósforo de jade. ¡Menudo perro!
 
 Dugu Bo maldijo a Tang San en voz baja antes de intercambiar una mirada con Chen Ming, quien se escondía en las sombras. Luego, desplegó su poder espiritual, levantando a los maestros espirituales heridos en el suelo.

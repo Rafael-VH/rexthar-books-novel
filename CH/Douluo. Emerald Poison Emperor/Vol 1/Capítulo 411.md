@@ -1,7 +1,4 @@
 
-#### Capítulo 411. Douluo Emperador Venenoso Esmeralda [411]
-
-
 El Gran Martillo Sumeru chocó con la Espada Angélica, y en un instante, fue como si un segundo sol hubiera salido sobre la tierra. Mirando a lo lejos, el desprevenido Tang Hao quedó cegado al instante por el resplandor explosivo, y su mundo entero se sumió en la oscuridad en un instante.
 
 Aunque a los demás les fue un poco mejor, no eran mucho más fuertes. El maestro de almas de tipo sanador del grupo fue rápidamente atraído por los demás.

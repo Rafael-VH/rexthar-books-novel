@@ -1,7 +1,4 @@
 
-#### Capítulo 431. Douluo Emperador del Veneno Esmeralda [431]
-
-
 Un pilar de luz azul surgió de la Isla del Dios del Mar, bloqueando el poder del alma color sangre. La fuerza del cielo y la tierra se sumó al cuerpo de Bo Saixi, amplificando aún más su fuerza.
 
 Aunque no podía controlar completamente el Tridente del Dios del Mar, debido al poder divino y la voluntad del Dios del Mar que residía en él, Bo Saixi aún podía desatar un tremendo poder con esta súper arma divina, uno de los artefactos de primer nivel en el reino divino.

@@ -1,7 +1,4 @@
 
-#### Capítulo 398. Douluo Emperador Venenoso Esmeralda [398]
-
-
 La Hierba Plateada Azul percibió el aura majestuosa del alma marcial de Tang Hao y el linaje real en el alma marcial de Tang San. Sin embargo, contrariamente a las expectativas de Tang Hao, el encuentro resultó diferente, pues todo el bosque irradiaba hostilidad hacia ambos.
 
 "¡Humanos que mataron al Emperador!"

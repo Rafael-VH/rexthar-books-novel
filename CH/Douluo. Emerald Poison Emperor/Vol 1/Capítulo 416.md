@@ -1,7 +1,4 @@
 
-#### Capítulo 416. Douluo Emperador del Veneno Esmeralda [416]
-
-
 "Poder espiritual de nivel divino, cuerpo físico de nivel semidivino y energía que casi se acerca al nivel semidivino".
 
 El Dios del Orgullo observó a Chen Ming, con una mirada de interés brillando en sus ojos.

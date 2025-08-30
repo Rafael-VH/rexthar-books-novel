@@ -1,7 +1,4 @@
 
-#### Capítulo 445. Douluo Emperador del Veneno Esmeralda [445]
-
-
 No era ningún secreto que la Academia del Tirano Azul estaba bajo el control de la Secta Cielo Claro, por lo que otras academias de maestros espirituales mantenían una actitud respetuosa pero distante hacia ella. Esto disgustó un poco a los estudiantes y profesores de la Academia del Tirano Azul.
 
 En las habitaciones asignadas a la Academia Blue Tyrant, Tang San, como capitán designado del equipo, conoció a sus compañeros de equipo a fondo por primera vez.

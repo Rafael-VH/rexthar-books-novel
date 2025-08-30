@@ -1,7 +1,4 @@
 
-#### Capítulo 440. Douluo Emperador del Veneno Esmeralda [440]
-
-
 Chen Ming se quedó completamente sin palabras. Desde su perspectiva, esta era una situación absolutamente flagrante: el Dios Dragón devoró a dos Reyes Dios, dejando solo unos pocos restos. ¿Por qué ningún dios del Reino Divino había considerado la posibilidad de semejante devoración?
 
 Espera, basándose en la forma en que el Dios Asura estaba operando en el Continente Douluo ahora, era difícil decir si el Dios Asura ya había anticipado las acciones del Dios Dragón y decidió crear una versión de bajo nivel como contramedida.

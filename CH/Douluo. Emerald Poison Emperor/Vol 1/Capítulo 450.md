@@ -1,7 +1,4 @@
 
-#### Capítulo 450. Douluo Emperador del Veneno Esmeralda [450]
-
-
 La Hierba de los Nueve Dragones ciertamente redujo la racionalidad de Tang San, pero sin la mejora física de la Hierba de los Nueve Dragones en primer lugar, Tang San ni siquiera habría sobrevivido hasta el punto en que su racionalidad disminuyó.
 
 La mayor parte del poder del alma actual de Tang San proviene de fuentes externas. Algunas, como los anillos y los huesos del alma, son relativamente suaves y pueden absorberse tras cierta adaptación, mientras que otras, obtenidas mediante la devoración, son mucho más difíciles de integrar.

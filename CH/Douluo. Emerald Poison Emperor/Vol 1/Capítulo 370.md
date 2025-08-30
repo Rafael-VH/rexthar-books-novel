@@ -1,7 +1,4 @@
 
-#### Capítulo 370. Douluo Emperador del Veneno Esmeralda [370]
-
-
 "¡Ah!"
 
 Sintiendo el dolor insoportable proveniente de su dantian y la parte inferior del cuerpo, Yu Xiaogang dejó escapar un grito de agonía antes de desmayarse. Su parte inferior, completamente fuera de control, liberó una inundación, llenando el aire con un hedor nauseabundo que hizo que incluso Yu Yuanzhen retrocediera instintivamente.

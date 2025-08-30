@@ -1,7 +1,4 @@
 
-#### Capítulo 403. Douluo Emperador del Veneno Esmeralda [403]
-
-
 Después de sentir esta característica única, la respiración de Tang San se aceleró.
 
 Es importante comprender que, incluso al absorber un anillo de alma, los atributos que otorga son únicos. Independientemente de la magnitud de las mejoras en las cualidades o atributos físicos, solo ocurren una vez.

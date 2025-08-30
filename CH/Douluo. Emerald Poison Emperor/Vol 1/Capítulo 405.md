@@ -1,7 +1,4 @@
 
-#### Capítulo 405. Douluo Emperador del Veneno Esmeralda [405]
-
-
 La liberación de su Cuerpo Verdadero del Alma Marcial transformó a Kaos en un enorme dragón de fuego de aproximadamente cinco metros de altura y quince metros de envergadura. Llamas abrasadoras se enroscaban alrededor de sus alas, garras afiladas y la larga cola que lo cubría, proyectando una leve amenaza hacia Tang Hao.
 
 Después de todo, Tang Hao se encontraba en un estado lamentable, completamente maltrecho y exhausto. El hecho de que no hubiera muerto de pura ira se debía únicamente a dos intervenciones desesperadas de la voluntad divina del Dios Asura. Su fuerza de combate apenas alcanzaba el 30% de su máximo, lo cual ya era impresionante dadas las circunstancias. Además, su estado general era tan precario que ni siquiera podía usar la habilidad espiritual de su noveno anillo espiritual, lo que reducía aún más su fuerza.

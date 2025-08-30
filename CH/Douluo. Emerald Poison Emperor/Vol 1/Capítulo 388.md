@@ -1,7 +1,4 @@
 
-#### Capítulo 388. Douluo Emperador Venenoso Esmeralda [388]
-
-
 Chen Ming no tenía ni idea de que Yu Xiaogang se había cambiado el nombre por uno tan cargado de fortuna. Tras despedirse del Dios Ángel, regresó al Pozo Yin-Yang de Hielo y Fuego, observando cada movimiento de Tang San.
 
 Tras reagruparse, surgieron desacuerdos entre Tang San y sus compañeros. Yu Xiaogang, ahora rebautizado como Huang San Gui, seguía tan terco como siempre, insistiendo en que Tang San debía participar en el Torneo de Maestros del Alma para obtener reconocimiento y alcanzar la gloria.

@@ -1,7 +1,4 @@
 
-#### Capítulo 430. Douluo Emperador del Veneno Esmeralda [430]
-
-
 Bo Saixi no tenía ni idea de que Tang San pudiera usar la luz divina del Dios del Mar para lograr algo así. De lo contrario, a pesar de ser bisnieto de Tang Chen, a Bo Saixi probablemente le habría costado perdonar a Tang San por lo que era esencialmente un sacrilegio. Sin embargo, desde la perspectiva de Tang San, el poder de su alma se había purificado. Aunque la cantidad había disminuido, la calidad, deteriorada por la devoración, había recuperado su estado original. Parecía haber mejorado sutilmente, e incluso su alma marcial se había fortalecido.
 
 Al observar a Bo Saixi, la mirada de Tang San rebosaba de fervor. Esta mirada excesivamente utilitaria disgustó un poco a Bo Saixi. Aunque aparentemente mantenía una actitud cariñosa, su opinión sobre Tang San había decaído ligeramente.

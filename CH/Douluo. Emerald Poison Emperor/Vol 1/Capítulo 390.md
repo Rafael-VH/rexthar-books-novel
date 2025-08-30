@@ -1,7 +1,4 @@
 
-#### Capítulo 390. Douluo Emperador del Veneno Esmeralda [390]
-
-
 "Hermanita, soy yo."
 
 Tang Hao se quitó la capucha. Su voz estaba ligeramente distorsionada, y su aspecto demacrado distaba mucho del hombre seguro y enérgico que había sido en su juventud.

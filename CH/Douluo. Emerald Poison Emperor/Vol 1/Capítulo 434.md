@@ -1,7 +1,4 @@
 
-#### Capítulo 434. Douluo Emperador del Veneno Esmeralda [434]
-
-
 Para evadir la persecución, los tres habían cambiado su apariencia hacía tiempo.
 
 En ese momento, a los ojos de la gente del pueblo, Dai Mubai y Xiao Wu eran vistos como un par de hermanas maestras del alma de una familia maestra del alma, mientras que el anciano e impotente Huang Sangu (Yu Xiaogang) naturalmente desempeñaba el papel de un viejo mayordomo.

@@ -1,7 +1,4 @@
 
-#### Capítulo 383. Douluo Emperador del Veneno Esmeralda [383]
-
-
 Qian Daoliu no respondió. En cambio, juntó los dedos como si fueran una espada y cargó contra Bibi Dong. Había despejado toda la zona, y afuera, los demás fieles del Salón de Adoración montaban guardia, creando una barrera. Nadie podía interrumpir la batalla entre él y Bibi Dong.
 
 "¡Rakshasa del Inframundo!"

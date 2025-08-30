@@ -1,7 +1,4 @@
 
-#### Capítulo 422. Douluo Emperador del Veneno Esmeralda [422]
-
-
 Lou Gao desconocía que, en la mente del Dios de la Forja, su futuro ya se había equiparado al de un trabajador común que pagaba un préstamo. O mejor dicho, incluso si lo supiera, no le importaría mucho en ese momento.
 
 Para ser honesto, si no fuera por la aparición de Chen Ming, con las habilidades actuales de Lou Gao, olvídese de heredar la posición divina de un dios de segundo nivel; ni siquiera se le garantizaría una posición como oficial divino en el Reino de Dios.

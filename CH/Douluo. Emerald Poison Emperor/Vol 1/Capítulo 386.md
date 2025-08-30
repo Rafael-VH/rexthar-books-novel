@@ -1,7 +1,4 @@
 
-#### Capítulo 386. Douluo Emperador del Veneno Esmeralda [386]
-
-
 El agua posee una naturaleza impredecible. Puede transportar barcos a través del vasto océano, pero también puede provocar tormentas y crear olas malévolas. Es inherentemente la entidad más virtuosa, pero también puede volverse la más perversa. El océano encarna simultáneamente ambas características extremas. Entonces, ¿hacia qué lado se inclina el Dios del Mar?
 
 ¡Vida! El poder del Dios del Mar se inclina más hacia el lado virtuoso del agua, por lo que representa la vida. Pensando en la Luz del Dios del Mar, moldeada con una porción del poder que le arrebató, el Dios Ángel ya había comprendido la respuesta.

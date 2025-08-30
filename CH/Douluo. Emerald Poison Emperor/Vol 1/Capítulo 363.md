@@ -1,7 +1,4 @@
 
-#### Capítulo 363. Douluo Emperador del Veneno Esmeralda [363]
-
-
 De hecho, al enterarse del enfrentamiento entre Shrek y el Clan del Dragón Tirano del Rayo Azul, Chen Ming, quien se había preparado con antelación, emergió de inmediato del Pozo Yin Yang de Hielo y Fuego con Dugu Bo, observando todo en silencio. Para entonces, el poder del alma de Dugu Bo ya había alcanzado el nivel máximo 96, cerca del 97. Sin embargo, considerando todas las mejoras en sus habilidades, su fuerza real era incluso mayor que la de un Douluo Titulado de nivel 97. Ambos observaban todo en secreto, y ni Yu Luomian ni Tang Hao notaron su presencia.
 
 Para cuando llegaron, el Clan del Dragón Tirano del Relámpago Azul ya había traído a Shrek a su campamento temporal. Yu Luomian condujo a Yu Xiaogang y sus compañeros a la tienda principal, mientras que Zhao Wuji y los demás fueron apartados para ser vigilados. Solo Tang San y los demás estudiantes, que parecían tener poca fuerza, fueron vigilados discretamente a la intemperie por los maestros espirituales del clan.

@@ -1,7 +1,4 @@
 
-#### Capítulo 433. Douluo Emperador del Veneno Esmeralda [433]
-
-
 No era Tang Chen fanfarroneando, sino más bien por su confianza. Si no encontraba una solución, nadie más en todo el continente Douluo podría idear un método de entrenamiento basado en un concepto tan peculiar.
 
 Si él no podía hacerlo, tampoco podía hacerlo el Salón Espiritual, ni tampoco la Isla del Dios del Mar.

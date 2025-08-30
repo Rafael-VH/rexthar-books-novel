@@ -1,7 +1,4 @@
 
-#### Capítulo 417. Douluo Emperador del Veneno Esmeralda [417]
-
-
 Al observar al Dios de la Arrogancia, Chen Ming reflexionó un momento, luego cerró los ojos y activó las dos pruebas divinas en su cuerpo. Anteriormente, se abstuvo deliberadamente de activar estas pruebas divinas, incluso deteniendo deliberadamente la prueba del Dios Ángel en la segunda etapa, para concentrarse en aumentar rápidamente el poder de su alma en el mundo Douluo. Pero ahora que su gran apoyo en el Reino de Dios le había enviado un regalo tan valioso, no había necesidad de más demora.
 
 Al activarse las pruebas divinas, el Dios de la Destrucción en el Reino de Dios percibió el cambio y envió un rayo de consciencia divina, arrastrando a Chen Ming a un semiplano. El Dios de la Arrogancia, al ser un dios subordinado del Dios de la Destrucción, también aprovechó el aura destructiva de su cuerpo para seguirlo.

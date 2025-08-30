@@ -1,7 +1,4 @@
 
-#### Capítulo 373. Douluo Emperador Venenoso Esmeralda [373]
-
-
 Por otro lado, Tang San y su grupo, que habían rescatado a Yu Xiaogang, habían llegado discretamente a una pequeña aldea para descansar y recuperarse. Gracias al tratamiento de emergencia de Tang San, Yu Xiaogang, que se encontraba en coma, finalmente recuperó la consciencia. Sin embargo, al darse cuenta de que su dantian estaba destrozado, que su poder espiritual había desaparecido por completo y que ya ni siquiera podía invocar su alma marcial Luo San Pao, se desmayó de nuevo.
 
 Tras un largo rato, Tang San se dedicó a la acupuntura, a administrar medicamentos e incluso a usar a Dai Mubai para alimentar a Yu Xiaogang con salchichas boca a boca. Tras tanto esfuerzo, Yu Xiaogang finalmente despertó, pero sus ojos reflejaban un profundo vacío. Por mucho que Tang San intentara estimularlo, Yu Xiaogang no reaccionaba, como si fuera un cadáver viviente.

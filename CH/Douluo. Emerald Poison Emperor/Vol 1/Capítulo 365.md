@@ -1,7 +1,4 @@
 
-#### Capítulo 365. Douluo Emperador Venenoso Esmeralda [365]
-
-
 En un momento en que la atención de la mayoría se centraba en Yu Xiaogang, Zhao Wuji y los demás, Tang Hao finalmente encontró el momento oportuno. Silenciosamente eliminó al grupo que custodiaba a Tang San y, sin dudarlo, se llevó a Tang San, a Xiao Wu e incluso arrastró a Oscar y a Dai Mubai al irse.
 
 Al irse, Dai Mubai también agarró a Ma Hongjun, quien había quedado inconsciente a manos de los maestros espirituales del Clan del Dragón Tirano del Rayo Azul debido a su comportamiento inapropiado. Con eso, se llevaron al grupo.

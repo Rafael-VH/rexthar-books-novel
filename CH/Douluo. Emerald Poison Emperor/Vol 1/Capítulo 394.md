@@ -1,7 +1,4 @@
 
-#### Capítulo 394. Douluo Emperador del Veneno Esmeralda [394]
-
-
 La velocidad de Tang Hao era realmente muy alta, pero Dugu Bo aún podría alcanzarlo si quisiera. Sin embargo, justo cuando Dugu Bo se disponía a activar su Avatar de Alma Marcial para perseguir a Tang Hao, una transmisión de voz espiritual lo detuvo en seco.
 
 Dugu Bo se giró, se colocó frente a Ye Renxin, abrió la pared y protegió a Ye Lingling tras él. Poco después, Chen Ming y Dugu Yan llegaron, aunque con un retraso considerable.

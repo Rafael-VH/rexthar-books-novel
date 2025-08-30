@@ -1,7 +1,4 @@
 
-#### Capítulo 374. Douluo Emperador del Veneno Esmeralda [374]
-
-
 Tang Hao creía que lo que había dicho ya era bastante cortés. Sin embargo, al oír el tono algo coercitivo de su ídolo, Yu Xiaogang no pudo evitar sentir un dolor inmenso y desgarrador. Recogió el papel y el bolígrafo que le habían lanzado, forzando una sonrisa torcida y amarga en su rostro.
 
 Señor Cielo Claro Douluo, entiendo su punto. Tal como están las cosas, ya soy un inútil, alguien que podría no vivir para ver el mañana. En cualquier momento, podría dejar este mundo. Pero aún queda una oportunidad crucial para el crecimiento de Xiaosan. No puedo permitir que mis defectos la detengan.

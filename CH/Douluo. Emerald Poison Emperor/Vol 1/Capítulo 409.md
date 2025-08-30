@@ -1,7 +1,4 @@
 
-#### Capítulo 409. Douluo Emperador del Veneno Esmeralda [409]
-
-
 Los que escoltaban el carruaje de la prisión eran todos expertos altamente capacitados.
 
 En otras palabras, estos individuos eran maestros del alma superiores, experimentados y poderosos.

@@ -1,7 +1,4 @@
 
-#### Capítulo 376. Douluo Emperador del Veneno Esmeralda [376]
-
-
 Aunque no era como Chen Ming, quien podía convertirse instantáneamente en un Ingeniero de Almas de alto nivel al aprender el oficio, un herrero de alto nivel podía alcanzar un Ingeniero de Almas de bajo nivel en poco tiempo tras familiarizarse con las técnicas de ingeniería de almas. Desde la perspectiva de un Ingeniero de Almas, Lou Gao ya era un Ingeniero de Almas de nivel 5. Su limitación no residía en una habilidad técnica, sino en su comprensión de las matrices de herramientas de almas. Con algo de estudio, le llevaría naturalmente de uno a dos años alcanzar un Ingeniero de Almas de nivel 6 o 7.
 
 Además, el alma marcial de Lou Gao era la Pluma Sagrada de Moldeo, que no tenía mucha importancia durante la forja, pero era extremadamente útil para tallar conjuntos de herramientas espirituales. Podía funcionar como una herramienta de tallado de precisión y era mucho más fácil de usar que un cincel normal.

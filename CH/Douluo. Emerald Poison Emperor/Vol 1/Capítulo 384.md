@@ -1,7 +1,4 @@
 
-#### Capítulo 384. Douluo Emperador del Veneno Esmeralda [384]
-
-
 Bibi Dong levantó la cabeza y miró a Qian Daoliu con incredulidad. Normalmente, lo habría mirado con odio, reprendiéndolo por su hipocresía y afirmando que no necesitaba su ayuda. Sin embargo, en ese momento, sintió que su mente se había calmado notablemente.
 
 El poder del Dios Rakshasa es muy fuerte, no más débil que el del Dios Ángel. Pero, Bibi Dong, has tomado el camino equivocado. Así como el Dios Ángel representa la justicia, el Dios Rakshasa representa el pecado. Sin embargo, debes comprender que lo que uno representa no define quién es. El Dios Rakshasa es una deidad que controla el pecado, no alguien que se deja controlar por él.

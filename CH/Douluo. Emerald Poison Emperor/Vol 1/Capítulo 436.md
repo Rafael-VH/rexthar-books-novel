@@ -1,7 +1,4 @@
 
-#### Capítulo 436. Douluo Emperador del Veneno Esmeralda [436]
-
-
 Después de que Tang San y Xiao Wu se calmaron, Tang Chen ordenó a todos que regresaran y empacaran sus pertenencias en preparación para regresar juntos al Clan del Cielo Claro.
 
 Al escuchar las palabras de Tang Chen, los tres, naturalmente, no pusieron objeción. Dai Mubai, con los brazos doloridos de tanto saludar, corrió a su habitación aliviado. Yu Xiaogang, cuya expresión cambiaba ocasionalmente, también regresó en silencio a su habitación para empacar su equipaje.

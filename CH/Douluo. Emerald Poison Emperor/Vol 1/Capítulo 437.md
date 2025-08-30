@@ -1,7 +1,4 @@
 
-#### Capítulo 437. Douluo Emperador del Veneno Esmeralda [437]
-
-
 "Mayor, ¿qué quieres decir?"
 
 Chen Ming no esperaba que la existencia del Pozo Yin Yang de Hielo y Fuego pasara desapercibida para el Dios de la Arrogancia. Al fin y al cabo, los cambios en el Bosque del Ocaso eran conocidos en todo el continente.

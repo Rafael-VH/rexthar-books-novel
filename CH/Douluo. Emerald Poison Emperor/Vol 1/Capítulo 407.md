@@ -1,7 +1,4 @@
 
-#### Capítulo 407. Douluo Emperador del Veneno Esmeralda [407]
-
-
 Ante la mirada horrorizada de Tang San, el perro blanco y negro se llevó la comida que había sacado, abrió su bolsa de agua y regresó a su pequeño nido de minerales. Allí, comenzó a saborear la cecina sazonada con diversas especias, ignorando por completo a Tang San. Después de un buen rato, cuando Tang San estuvo seguro de que la bestia del alma ya no lo miraba, movió lentamente su cuerpo, acercó la boca a la bolsa de agua rota, tomó dos sorbos de agua y se alimentó con su Hierba Plateada Azul.
 
 En los días siguientes, el perro blanco y negro pareció acostumbrarse gradualmente a la presencia de Tang San, perdiendo su curiosidad inicial sobre esta criatura débil y desconocida.

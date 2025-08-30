@@ -1,7 +1,4 @@
 
-#### Capítulo 427. Douluo Emperador del Veneno Esmeralda [427]
-
-
 Aunque la consciencia divina del Dios Asura comprendía lo que sucedía, Tang San y el Dragón Marino Douluo, las partes involucradas, desconocían la verdad. Para ellos, esto no era más que un encuentro casual.
 
 "¿Isla del Dios del Mar? Nunca había oído ese nombre en el continente. ¿Será que el mayor es del Salón Espiritual y tomó prestado el nombre de la Isla del Dios del Mar para ajustar cuentas conmigo?"

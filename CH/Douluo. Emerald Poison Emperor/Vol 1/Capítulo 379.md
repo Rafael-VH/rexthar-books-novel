@@ -1,7 +1,4 @@
 
-#### Capítulo 379. Douluo Emperador del Veneno Esmeralda [379]
-
-
 En comparación con su anterior entrada arrogante al Salón del Papa en la obra original, esta vez Yu Xiaogang entró en la sala con un aspecto extremadamente desaliñado. Al presentar la Medalla del Papa en su mano, aunque los caballeros la examinaron minuciosamente y no encontraron ningún defecto, coincidieron en que algo andaba mal con este hombre. Aunque la Medalla del Papa parecía auténtica, nadie se atrevió a informar directamente al Papa.
 
 Después de todo, ¿qué clase de persona decente luciría tan demacrada, con los pantalones ligeramente húmedos y desprendiendo un olor nauseabundo, caminando con pasos vacilantes como si estuviera a punto de desmayarse, desprovista de cualquier poder espiritual y con la apariencia de estar al borde de la muerte? Que alguien así pudiera poseer la Insignia del Papa era tan absurdo como que un dragón de verdad naciera en el mundo mortal.

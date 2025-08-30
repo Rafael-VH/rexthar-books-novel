@@ -1,7 +1,4 @@
 
-#### Capítulo 401. Douluo Emperador del Veneno Esmeralda [401]
-
-
 "Diez Mil Fantasmas Douluo, ¡qué Diez Mil Fantasmas Douluo!"
 
 Al ver cómo le arrebataban el hueso del alma y, peor aún, sintiendo como si incluso le hubieran arrebatado a su madre, Tang San sintió un dolor punzante en el pecho, como si le hubieran clavado un cuchillo en el corazón. Sin control, dejó escapar un rugido explosivo, tras lo cual se desplomó en el suelo, sentado como su padre Tang Hao.

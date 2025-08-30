@@ -1,7 +1,4 @@
 
-#### Capítulo 429. Douluo Emperador del Veneno Esmeralda [429]
-
-
 La velocidad de Douluo Dragón Marino y Douluo Fantasía Marina no era especialmente rápida, sobre todo al cargar a Tang San. Tardaron cinco días en llegar a la costa.
 
 Una vez que entraron al mar, su velocidad aumentó significativamente. Aunque la distancia que tuvieron que recorrer fue mayor que por tierra, tardaron menos de tres días en regresar a la Isla del Dios del Mar.

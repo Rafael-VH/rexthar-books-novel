@@ -1,7 +1,4 @@
 
-#### Capítulo 368. Douluo Emperador del Veneno Esmeralda [368]
-
-
 Poco después de que Tang Hao se llevara a los estudiantes de Shrek y se marchara, Yu Luomian recibió un informe. Al enterarse de que un poderoso desconocido se había llevado al grupo de estudiantes de Shrek, Yu Luomian frunció el ceño. Incluso Liu Erlong, quien antes había estado reprendiendo furiosamente a Yu Luomian, se detuvo de inmediato, con aspecto de pánico.
 
 Las personas son criaturas multifacéticas. Si bien Yu Luomian era un hombre orgulloso que detestaba al grupo de Shrek debido a la conexión de Yu Xiaogang con ellos, se sentía responsable de su seguridad una vez que fueron llevados al campamento del Clan del Dragón Tirano del Relámpago Azul. Ya fuera que el extraño que los había secuestrado tuviera la intención de ayudarlos o hacerles daño, Yu Luomian consideraba ambas situaciones inaceptables.

@@ -1,7 +1,4 @@
 
-#### Capítulo 415. Douluo Emperador del Veneno Esmeralda [415]
-
-
 Desapareciste durante tantos años, sin siquiera comprender la situación actual del continente. ¿Por qué te importa algo tan trivial como el Torneo de Élite de la Academia Avanzada de Maestros del Alma, que es solo un juego para la generación más joven? Esto no parece encajar con tu estilo, Tang Chen.
 
 Qian Daoliu preguntó con calma y Tang Chen cayó en una breve confusión.

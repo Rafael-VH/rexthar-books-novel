@@ -1,7 +1,4 @@
 
-#### Capítulo 385. Douluo Emperador del Veneno Esmeralda [385]
-
-
 Qian Daoliu atravesó el espacio y regresó al Salón de Adoración. La Espada Sagrada Angélica, que contenía la consciencia divina del Dios Ángel, comenzó de inmediato a escanear el aura de Qian Daoliu. Tras confirmar que no le habían dejado rastros de vigilancia, abrió silenciosamente un pasaje extremadamente pequeño.
 
 Qian Daoliu cerró los ojos y se concentró, insertando cuidadosamente una brizna de aura que acababa de extraer de Bibi Dong durante su combate. Por otro lado, la verdadera forma del Dios Ángel (relativamente hablando) captó rápidamente esta aura y comenzó a analizarla meticulosamente, con la ayuda del poder del Árbol Dorado.

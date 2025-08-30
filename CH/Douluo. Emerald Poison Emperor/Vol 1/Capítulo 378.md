@@ -1,7 +1,4 @@
 
-#### Capítulo 378. Douluo Emperador del Veneno Esmeralda [378]
-
-
 Al ver cómo el Maestro de Almas de la Vid Fantasma retraía su alma marcial, Tang San suspiró aliviado. También retiró su Hierba Plateada Azul, que no parecía una Hierba Plateada Azul común, y luego miró a Yu Xiaogang, quien tenía una expresión de descontento. Desviando ligeramente la mirada, Tang San preguntó con indiferencia: "Hermano mayor, ¿puedo preguntar qué es la Hierba Plateada Azul Oscura? ¿Es un tipo especial de Hierba Plateada Azul?"
 
 "¿Hierba Plateada Azul Oscura?" El Maestro de Almas de la Vid Fantasma, claramente una persona bondadosa, asintió. Ya que Tang San se atrevió a preguntar, se atrevió a responder. O quizás ya había sido sutilmente influenciado por el carisma innato de Tang San.

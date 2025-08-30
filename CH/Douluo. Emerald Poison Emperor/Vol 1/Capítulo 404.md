@@ -1,7 +1,4 @@
 
-#### Capítulo 404. Douluo Emperador del Veneno Esmeralda [404]
-
-
 En los días siguientes, Tang Hao guió a Tang San a través de varios bosques de bestias espirituales cercanos, donde consumió vorazmente la carne y la sangre de estas bestias, deleitándose con el placer de su creciente fuerza. En tan solo una semana, el nivel de poder de Tang San se disparó del rango 31 al 34, un progreso asombroso y casi increíble. Sin embargo, como resultado de este consumo desenfrenado y desenfrenado, los cambios en el cuerpo de Tang San se hicieron cada vez más pronunciados.
 
 Ahora, la cabeza de Tang San había desarrollado protuberancias notables y afiladas en la parte superior. Su cuerpo se volvió más musculoso, pero su boca también se ensanchó significativamente, y los músculos alrededor de su mandíbula se volvieron inusualmente prominentes. Su apariencia había ido mucho más allá de ser simplemente un poco desproporcionada: había adquirido un carácter completamente grotesco.

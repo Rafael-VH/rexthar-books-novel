@@ -1,7 +1,4 @@
 
-#### Capítulo 420. Douluo Emperador del Veneno Esmeralda [420]
-
-
 —Mayor Aotian, ¿acabas de decir que el Dios de la Forja aceptó descender y llevar a cabo una prueba divina?
 
 En efecto. El dios supremo intercedió por ti, y el Dios de la Forja accedió a descender y realizar una prueba divina. Sin embargo, se limita a la prueba. Que el candidato pueda obtener el reconocimiento del Dios de la Forja y hasta dónde pueda llegar dependerá enteramente de su talento y de la aprobación del Dios de la Forja.

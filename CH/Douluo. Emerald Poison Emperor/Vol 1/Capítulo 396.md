@@ -1,7 +1,4 @@
 
-#### Capítulo 396. Douluo Emperador del Veneno Esmeralda [396]
-
-
 Dugu Bo y Ye Renxin conversaron largo y tendido. Al escuchar las aspiraciones de Dugu Bo, Ye Renxin no pudo evitar sentirse tentado. Sin embargo, dudó debido a la filosofía neutral de la familia Begonia de Nueve Corazones, temiendo que una mala decisión pudiera traer problemas al futuro familiar. Pero cuando Chen Ming sacó una herramienta del alma, tal como la presentó antes al Clan de los Siete Tesoros de Azulejos Esmaltados, y explicó sus usos, revelando la alianza estratégica ya establecida con ellos, Ye Renxin finalmente comprendió que un gran cambio en el mundo de los maestros del alma era inminente.
 
 Para asegurarse de que la familia Begonia de Nueve Corazones no fuera eliminada en los próximos cambios, Ye Renxin lo pensó durante mucho tiempo antes de apretar los dientes y aceptar la invitación de Dugu Bo, subiéndose efectivamente a su carro de guerra.

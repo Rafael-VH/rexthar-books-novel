@@ -1,7 +1,4 @@
 
-#### Capítulo 435. Douluo Emperador del Veneno Esmeralda [435]
-
-
 Aunque Xiao Wu tenía algo con qué disfrazarse, no fue suficiente para engañar a Tang Chen, quien le había estado prestando mucha atención. Con solo una mirada, Tang Chen descubrió la verdadera forma de Xiao Wu: un Conejo de Hueso Blando de 100.000 años.
 
 A sus ojos, el cuerpo de Xiao Wu estaba envuelto en la sombra de un Conejo de Hueso Blando, con un aura que parecía extremadamente débil. Esto indicaba que, ya fuera antes o después de su transformación en humana, la fuerza de este pequeño conejo era lamentablemente pobre.

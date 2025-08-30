@@ -1,7 +1,4 @@
 
-#### Capítulo 402. Douluo Emperador del Veneno Esmeralda [402]
-
-
 Esta escena parecía la personificación de una relación armoniosa entre padre e hijo, tanto que podría considerarse una obra maestra. Sin embargo, si alguien conociera realmente los pensamientos de Tang San, podría haber sentido asco hasta el punto de vomitar. Dentro de la cámara de piedra, Tang Hao compartió con Tang San muchas cosas sobre Ah Yin. Le contó cómo se conocieron, lo puro e intenso que era el amor entre ellos, y lo malvado que era el Salón Espiritual.
 
 Cuando Tang Hao mencionó a Ah Yin, inevitablemente mencionó a su hermano mayor, Tang Xiao. Cuando Tang Hao vagaba por el continente, Tang Xiao lo acompañó. Ambos conocieron a Ah Yin y se enamoraron de la misma mujer pura y elegante. Sin embargo, Tang Xiao finalmente decidió renunciar a ella.

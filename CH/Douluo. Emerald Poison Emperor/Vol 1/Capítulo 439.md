@@ -1,7 +1,4 @@
 
-#### Capítulo 439. Douluo Emperador del Veneno Esmeralda [439]
-
-
 "Dragón Azul, Tigre Blanco, Tortuga Negra... pero ¿qué pasa con la deidad Pájaro Bermellón?"
 
 "La deidad Pájaro Bermellón... que nos transporta a algunos acontecimientos del pasado".

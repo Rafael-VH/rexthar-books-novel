@@ -1,7 +1,4 @@
 
-#### Capítulo 413. Douluo Emperador del Veneno Esmeralda [413]
-
-
 La rendición de Tang Chen fue como un martillo gigante invisible que golpeó sin piedad el corazón de Tang Hao. Al escuchar las palabras de su abuelo, Tang Hao se desmayó de inmediato. Aunque el poder de su alma estaba sellado, debido a sus emociones abrumadoras, el poder reprimido en su dantian chocó violentamente, provocando que la sangre fluyera por sus orificios faciales.
 
 Al mirar a Tang Hao en ese estado, Tang Chen de repente sintió una punzada de arrepentimiento.

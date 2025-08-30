@@ -1,7 +1,4 @@
 
-#### Capítulo 424. Douluo Emperador del Veneno Esmeralda [424]
-
-
 El Dios de la Matanza estaba ocupado dentro de la Ciudad de la Matanza.
 
 Desde su descenso al Mundo Douluo, obedeció de inmediato la voluntad del Dios Asura y se presentó ante Tang Chen. Despertó a Tang Chen, quien se encontraba bajo el control del Rey Murciélago Rojo Sangriento de Nueve Cabezas, y utilizó el plan B que el Dios Asura le había dejado durante la prueba divina para transformarlo en un Sumo Sacerdote imbuido del poder del Dios Asura.

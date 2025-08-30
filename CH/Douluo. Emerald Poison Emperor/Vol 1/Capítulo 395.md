@@ -1,7 +1,4 @@
 
-#### Capítulo 395. Douluo Emperador del Veneno Esmeralda [395]
-
-
 Al escuchar las confiadas garantías de Dugu Bo, Chen Ming no tuvo pensamientos adicionales.
 
 Después de todo, podía fabricar la Herramienta de Alma Escudo Invencible, y su tasa de éxito era del 100 %. La razón por la que no los produjo en masa fue que el material principal requerido, la piedra de cristal dorada, solo existía en el Continente Sol y Luna y era extremadamente raro. De lo contrario, ya habría fabricado una gran cantidad de estos Escudos Invencibles.

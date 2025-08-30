@@ -1,7 +1,4 @@
 
-#### Capítulo 366. Douluo Emperador del Veneno Esmeralda [366]
-
-
 Después de hablar brevemente con Tang San y explicarle que tenía sus razones para actuar como lo hizo, pero que también lo había estado vigilando en secreto, Tang Hao compartió varios consejos clave con Tang San.
 
 Primer punto: nunca reveles tu Martillo de Cielo Claro. Hasta que alcances el título de Douluo, nunca expongas tu segunda alma marcial ni intentes colocarle ningún anillo de alma.

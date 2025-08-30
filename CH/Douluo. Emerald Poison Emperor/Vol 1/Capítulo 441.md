@@ -1,7 +1,4 @@
 
-#### Capítulo 441. Douluo Emperador del Veneno Esmeralda [441]
-
-
 Después de dejar el Reino Místico de la Prueba Divina, Chen Ming distribuyó el Sueño Borracho de Vida y Muerte: 40% a Dugu Bo, 20% a Dugu Yan, bebió el 20% él mismo y se quedó con el 20% restante.
 
 Dugu Bo se había estancado en la etapa de comprensión de su cultivo, pero gracias al refinamiento del vino divino, su poder espiritual se incrementó aún más. Este avance en su poder espiritual elevó su nivel de cultivo a 97. Dugu Yan, por otro lado, originalmente en el nivel 55, experimentó una mejora significativa gracias al vino divino. Tras una noche de absorción, avanzó al nivel 58.

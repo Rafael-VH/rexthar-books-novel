@@ -1,7 +1,4 @@
 
-#### Capítulo 393. Douluo Emperador del Veneno Esmeralda [393]
-
-
 "Ahora."
 
 Tang Hao entrecerró los ojos, liberando silenciosamente el poder de su alma mientras se infiltraba en la habitación de Ye Renxin.

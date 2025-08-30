@@ -1,7 +1,4 @@
 
-#### Capítulo 364. Douluo Emperador del Veneno Esmeralda [364]
-
-
 ¿Yu Luomian ama a Liu Erlong y a la madre de Liu Erlong?
 
 Por supuesto que sí. Incluso podría decirse que la madre de Liu Erlong fue la mujer que Yu Luomian más amó en toda su vida. No le importó en absoluto que hubiera sido cortesana y la apreciaba como el amor de su vida.

@@ -1,7 +1,4 @@
 
-#### Capítulo 392. Douluo Emperador del Veneno Esmeralda [392]
-
-
 El linaje de la Begonia de Nueve Corazones es único. En todo el mundo, solo puede haber dos maestros del alma con el alma marcial de la Begonia de Nueve Corazones despertada simultáneamente. Por ello, a pesar de poseer una increíble capacidad curativa capaz de revivir a los muertos y regenerar carne y huesos, rivalizando con la Pagoda de los Siete Tesoros por el puesto de alma marcial del sistema auxiliar más fuerte, nunca ha enfrentado la persecución del Clan de los Siete Tesoros.
 
 Por el contrario, debido a su número limitado, la relación entre la Begonia de Nueve Corazones y el Clan de los Siete Tesoros Esmaltados (dos fuerzas que teóricamente deberían ser rivales) siempre ha sido bastante armoniosa.

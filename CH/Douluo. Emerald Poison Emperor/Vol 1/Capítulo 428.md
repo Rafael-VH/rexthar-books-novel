@@ -1,7 +1,4 @@
 
-#### Capítulo 428. Douluo Emperador del Veneno Esmeralda [428]
-
-
 Las flechas de la Ballesta Divina Zhuge eran capaces de penetrar el poder protector del alma de un Maestro del Alma de nivel Ancestro del Alma. Su poder, especialmente con su ráfaga de cuatro disparos, no debía subestimarse. Sin embargo, esto solo era efectivo contra Maestros del Alma de nivel inferior.
 
 El alma marcial del Dragón Marino Douluo era el Dragón Marino, un alma marcial de dragón puro de extraordinaria calidad, comparable al Dragón Tirano del Relámpago Azul. Incluso lejos del océano, su poder de combate seguía siendo abrumador, una de las razones por las que lo habían enviado al Continente Douluo.

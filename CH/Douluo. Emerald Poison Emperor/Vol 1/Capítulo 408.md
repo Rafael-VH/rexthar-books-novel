@@ -1,7 +1,4 @@
 
-#### Capítulo 408. Douluo Emperador del Veneno Esmeralda [408]
-
-
 Las condiciones físicas actuales de Tang Hao y Tang San son muy inferiores a las de sus versiones del mundo original, donde Tang San poseía las Ocho Lanzas Araña y el Cuerpo Alquímico de Hielo y Fuego. Tanto su poder espiritual como su estado físico son significativamente más débiles, lo que los hace completamente incapaces de absorber un anillo de alma de diez mil años.
 
 El anillo del alma del perro blanco y negro, con una vida útil de poco más de 8000 años, ya estaba al límite de lo que el cuerpo de Tang San podía soportar. Si hubiera sido más larga, probablemente no habría podido absorberla. Sin embargo, con la ayuda de la Técnica del Cielo Misterioso, Tang San logró absorber con éxito el primer anillo del alma para su alma marcial Martillo del Cielo Claro.

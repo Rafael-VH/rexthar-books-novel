@@ -1,7 +1,4 @@
 
-#### Capítulo 382. Douluo Emperador del Veneno Esmeralda [382]
-
-
 Tras completar esta última tarea, Bibi Dong sintió que se le había quitado un peso de encima. Suspiró y salió del Salón del Papa, ordenando a los caballeros del templo que se ocuparan de Yu Xiaogang y de los asuntos internos. Al recibir las órdenes del Papa, los caballeros entraron de inmediato en el salón para borrar todo rastro de Yu Xiaogang.
 
 Después del sorteo, a unos cuantos caballeros desafortunados se les asignó la tarea de expulsar a Yu Xiaogang de la Ciudad Espíritu.

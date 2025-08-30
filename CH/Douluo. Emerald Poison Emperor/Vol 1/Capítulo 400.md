@@ -1,7 +1,4 @@
 
-#### Capítulo 400. Douluo Emperador del Veneno Esmeralda [400]
-
-
 Aunque pensaba así, Tang Hao no se atrevió a quejarse, temiendo que la Hierba Plateada Azul lo escuchara y le guardara rencor. Después de todo, esa Hierba Plateada Azul pertenecía a Ah Yin, y aún necesitaba su ayuda para el segundo despertar del alma marcial de Xiao San. Era mejor no ofenderlos si era posible evitarlo.
 
 "Padre, ¿adónde vamos?", preguntó Tang San, quien había sido llevado por Tang Hao por el cuello como un pollito durante un buen rato, finalmente no pudo resistirse a preguntar. Tras estar azotado por el viento durante la mitad del viaje, la curiosidad lo venció. Al oír esto, Tang Hao suspiró con una expresión de dolor.

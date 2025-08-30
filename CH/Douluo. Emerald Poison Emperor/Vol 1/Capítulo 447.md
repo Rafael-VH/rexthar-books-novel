@@ -1,7 +1,4 @@
 
-#### Capítulo 447. Douluo Emperador del Veneno Esmeralda [447]
-
-
 El que chocó con Tang San era un miembro de la Secta Elefante Blindada, que representaba a la Academia Elefante Blindada.
 
 Aunque la Academia Blindada de Elefantes no compartía vínculos particularmente estrechos con las otras cuatro academias y a menudo rondaba la inclusión, seguía siendo una de las Cinco Academias Elementales del Imperio Heaven Dou. Con sus atributos duales de tierra y metal, la academia se especializaba en formar poderosos maestros del alma de asalto y defensa, y era una institución con una larga reputación.

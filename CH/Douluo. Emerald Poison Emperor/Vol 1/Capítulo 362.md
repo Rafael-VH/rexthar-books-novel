@@ -1,7 +1,4 @@
 
-#### Capítulo 362. Douluo Emperador del Veneno Esmeralda [362]
-
-
 A los ojos del Douluo Titulado, si Flender y Liu Erlong eran considerados débiles, los profesores de la Academia Shrek no eran más que de baja categoría. Salvo Zhao Wuji, quien logró resistir un solo golpe de la Garra del Dragón del Trueno activando su Avatar de Alma Marcial y quedó inconsciente tras un golpe posterior, los demás no resistieron ni un solo ataque. Estaban tendidos en el suelo, tosiendo sangre, con sus almas marciales destrozadas.
 
 Esta masacre unilateral dejó a Shao Xin, quien había invocado su Alma Marcial de Frijol de Azúcar y estaba listo para brindar apoyo a sus compañeros de equipo en cualquier momento, completamente sin palabras.

@@ -1,7 +1,4 @@
 
-#### Capítulo 389. Douluo Emperador Venenoso Esmeralda [389]
-
-
 El Clan de la Velocidad apenas sobrevivía, con dificultades para llegar a fin de mes y mudándose constantemente por todo el continente. Dentro del clan, prácticamente no había figuras poderosas notables, y debido a su falta de capacidad ofensiva, pasaban completamente desapercibidos para el resto del continente.
 
 El Clan de la Defensa se especializaba en la construcción de casas y la construcción. En los últimos años, se habían recuperado un poco, pero la fuerza general de sus miembros seguía siendo débil, incluso más débil que la del Clan de la Fuerza antes del incidente de Tai Tan.

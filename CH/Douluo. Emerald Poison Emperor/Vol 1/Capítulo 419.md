@@ -1,7 +1,4 @@
 
-#### Capítulo 419. Douluo Emperador del Veneno Esmeralda [419]
-
-
 Aunque Chen Ming siempre había sabido que las posiciones divinas eran un arma de doble filo, después de pensar más profundamente sobre ello, desarrolló algunos pensamientos adicionales sobre ellas.
 
 Pensó que si bien podría usar una posición divina para desarrollar su potencial en el futuro, no podía permitir que esta limitara su crecimiento. Hasta que comprendiera plenamente la situación, decidió que debía estar listo para ceder inmediatamente la posición divina a otra persona después de ascender y obtener poder a través de ella.

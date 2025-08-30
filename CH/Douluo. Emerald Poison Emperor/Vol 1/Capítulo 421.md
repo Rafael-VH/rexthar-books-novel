@@ -1,7 +1,4 @@
 
-#### Capítulo 421. Douluo Emperador del Veneno Esmeralda [421]
-
-
 ¡Qué temperamento tienes! Veamos qué tal se te da forjar.
 
 El Dios de la Forja sonrió y palmeó el delicado martillo de forja en su mano. Los patrones del martillo se iluminaron de repente, y una plataforma de forja ilusoria se separó de él. Se solidificó lentamente y finalmente se transformó en un objeto tangible.

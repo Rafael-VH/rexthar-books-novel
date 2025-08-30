@@ -1,7 +1,4 @@
 
-#### Capítulo 397. Douluo Emperador del Veneno Esmeralda [397]
-
-
 En los últimos días, la Secta Cielo Claro ya no pudo soportar la presión. Inmediatamente emitieron un comunicado público declarando que Tang Hao y la Secta Cielo Claro ya no tenían conexión. Tras esto, no tuvieron más remedio que arriesgarse a ser atacados de nuevo por Qian Daoliu y enviaron a un anciano personalmente a la residencia de Ye Renxin para disculparse. La siempre orgullosa Secta Cielo Claro incluso ofreció un hueso del alma del brazo derecho de 30.000 años de antigüedad, de tipo fuerza, como compensación. Este gesto equivalía esencialmente a arrodillarse y suplicarle clemencia a Ye Renxin, rogándole que dejara de atacar a la Secta Cielo Claro.
 
 Aunque la Secta Cielo Claro seguía siendo una entidad formidable, incluso un camello moribundo era más grande que un caballo, y aún podía defenderse si se le presionaba al límite. Sin embargo, un camello moribundo difícilmente podía competir con una manada de caballos. Con Ye Renxin al frente, muchas familias que ya guardaban rencor contra la Secta Cielo Claro se unieron para atacarla.

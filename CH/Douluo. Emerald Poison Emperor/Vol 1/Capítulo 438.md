@@ -1,7 +1,4 @@
 
-#### Capítulo 438. Douluo Emperador del Veneno Esmeralda [438]
-
-
 Los Dragones de Tierra también poseen un atributo estable, pero este se basa principalmente en la tierra, siendo la estabilidad una característica secundaria. Dado que los matrimonios mixtos son comunes entre la raza dragón, los Dragones de Tierra y los Dragones de Montaña, cuyos atributos son inherentemente similares, han tenido éxito en la reproducción conjunta. Esta es también la razón por la que la gente suele confundir al Rey Dragón de Montaña con el Rey Dragón de Tierra.
 
 "Pero además de los Nueve Reyes Dragones, hay otros dos Reyes Dioses Dragón en el Reino Divino".

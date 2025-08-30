@@ -1,7 +1,4 @@
 
-#### Capítulo 369. Douluo Emperador Venenoso Esmeralda [369]
-
-
 Tras el regreso de Yu Yuanzhen al campamento, primero mantuvo una conversación privada con Yu Luomian para comprobar si había ocurrido algo significativo recientemente en la secta o en el campamento. Una vez cumplidas sus responsabilidades como líder de la secta y cabeza de familia, finalmente abordó el asunto de Yu Xiaogang.
 
 Yu Luomian explicó con franqueza por qué había abofeteado a Yu Xiaogang y la razón por la que Yu Xiaogang todavía no podía ponerse de pie correctamente.

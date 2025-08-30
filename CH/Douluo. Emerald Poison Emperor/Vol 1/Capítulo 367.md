@@ -1,7 +1,4 @@
 
-#### Capítulo 367. Douluo Emperador del Veneno Esmeralda [367]
-
-
 Tang Hao comenzó a relatar lentamente la historia de su pasado con Ah Yin. Al hablar de su amor, su rostro se llenó de nostalgia. Pero al mencionar cómo su esposa, Ah Yin, fue perseguida por el Salón Espiritual tras ser expuesta y finalmente tuvo que sacrificarse por él, su expresión se tornó de profundo dolor.
 
 Aunque Tang Hao comprendió los acontecimientos con claridad, había estado reflexionando sobre si su enfoque conservador de entonces lo había limitado; de lo contrario, podría haber absorbido dos anillos de alma de 100.000 años. Sin embargo, mientras hablaba, Tang Hao se presentó como la víctima.

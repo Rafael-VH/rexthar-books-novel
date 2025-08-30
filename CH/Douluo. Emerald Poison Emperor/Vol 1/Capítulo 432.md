@@ -1,7 +1,4 @@
 
-#### Capítulo 432. Douluo Emperador del Veneno Esmeralda [432]
-
-
 Tang Chen miró a Bo Saixi, quien tenía los ojos cerrados y permanecía en silencio. Sintió un poco de amargura, pero al mismo tiempo, por alguna razón, sintió como si le hubieran quitado un peso del corazón.
 
 En el fondo, no estaba seguro de si debía sentir alegría o tristeza. Solo sentía que una gruesa barrera los separaba a él y a Bo Saixi. Aunque estaban tan cerca que podían tocarse, sus respectivas identidades los hacían parecer mundos aparte.
