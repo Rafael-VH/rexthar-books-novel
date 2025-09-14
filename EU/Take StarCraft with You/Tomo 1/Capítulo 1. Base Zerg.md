@@ -1,11 +1,4 @@
 
-## Capítulo 1 Base Zerg
-
-
-2134 palabras
-27 de mayo de 2014 09:43
-
-
 “Tic-tac, tic-tac.” Las gotas de agua que colgaban de las estalactitas golpeaban los charcos, emitiendo suaves sonidos.
 
 En la cripta oscura y húmeda, un rayo de luz brilló en la pared de roca, proyectando un halo verde.

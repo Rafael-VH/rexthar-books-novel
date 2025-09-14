@@ -3,7 +3,7 @@ Take StarCraft with You
 
 ---
 
-[[Books/EU/Take StarCraft with You/Tomo 1/Tomo 1. Capítulo 1|Tomo 1. Capítulo 1]]
+[[Capítulo 1. Base Zerg|Capítulo 1. Base Zerg]]
 
 [[Books/EU/Take StarCraft with You/Tomo 1/Tomo 1. Capítulo 2|Tomo 1. Capítulo 2]]
 
